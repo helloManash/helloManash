@@ -3,6 +3,6 @@
 ---
 
 <h2 align='center'>Quote of the Moment</h2>
-<h3 quote align='center'>Happiness doesn't depend on any external conditions, it is governed by our mental attitude.</h3 quote>
+<h3 quote align='center'>To be a successful father there's one absolute rule: when you have a kid, don't look at it for the first two years.</h3 quote>
 
 ---
