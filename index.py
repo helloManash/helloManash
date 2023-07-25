@@ -3,7 +3,7 @@ import json
 import requests
 import os
 
-# Getting API key from environment variable
+# Getting API key from environment variables
 API_KEY = os.environ.get('api_key')
 
 # Getting a random quote from the API
