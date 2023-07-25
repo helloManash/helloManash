@@ -40,8 +40,7 @@ endIndex = readmeText.index(closingTag)
 quoteMarkdown = "<h3 quote align='center'>"
 				+ mainQuote + "." + "</h3 quote>"
 
-content = readmeText[startIndex +
-						len(openingTag) : endIndex]
+content = readmeText[startIndex +len(openingTag) : endIndex]
 newContent = (
 	readmeText[:startIndex]
 	+ quoteMarkdown
