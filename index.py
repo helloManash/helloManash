@@ -12,7 +12,7 @@ category = ['inspirational','attitude','dreams',
 			'leadership','success']
 api_url = 'https://api.api-ninjas.com/v1/\
 quotes?category={}'.format(category[random.randint(0,6)])
-response = requests.get(api_url, headers={'X-Api-Key': 'R/S2rfdjLl6xiCbPe/fWKQ==wvsYeS08U2uaNQan'})
+response = requests.get(api_url, headers={'X-Api-Key': API_KEY})
 
 if response.status_code == requests.codes.ok:
 	quote=response.text
