@@ -12,8 +12,7 @@ category = ['inspirational','attitude','dreams',
 			'leadership','success']
 api_url = 'https://api.api-ninjas.com/v1/\
 quotes?category={}'.format(category[random.randint(0,6)])
-response = requests.get(api_url, headers=
-						{'X-Api-Key': 'R/S2rfdjLl6xiCbPe/fWKQ==wvsYeS08U2uaNQan'})
+response = requests.get(api_url, headers={'X-Api-Key': 'R/S2rfdjLl6xiCbPe/fWKQ==wvsYeS08U2uaNQan'})
 
 if response.status_code == requests.codes.ok:
 	quote=response.text
@@ -37,8 +36,7 @@ closingTag = "</h3 quote"
 startIndex = readmeText.index(openingTag)
 endIndex = readmeText.index(closingTag)
 
-quoteMarkdown = "<h3 quote align='center'>"
-				+ mainQuote + "." + "</h3 quote>"
+quoteMarkdown = "<h3 quote align='center'>" + mainQuote + "." + "</h3 quote>"
 
 content = readmeText[startIndex +len(openingTag) : endIndex]
 newContent = (
