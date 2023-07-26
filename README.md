@@ -1,4 +1,5 @@
 <!--## 💫 About Me:-->
+
 <p align="center">
   <h1 align="center">Hi 👋, I'm Manash</h1>
   <p align="center">
@@ -56,6 +57,11 @@
 
 
 [![Manash's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=helloManash&bg_color=1F222E&color=F8D866&line=F85D7F&point=FFFFFF&area=true&hide_border=true)](https://github.com/SarveshMankar/github-readme-activity-graph)
+
+
+## 🔥 Leetcode stats:
+
+![LeetCode Stats](https://leetcard.jacoblin.cool/Manash_B?theme=wtf&font=Maven%20Pro&ext=activity)
 
 <h3 align="center">Visitor's count</h3>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hellomanash&label=Profile%20views&color=0e75b6&style=flat" alt="hellomanash" /> </p>
