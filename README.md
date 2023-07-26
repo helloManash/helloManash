@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A great mind becomes a great fortune.</h3 quote>
+<h3 quote align='center'>Britishness is just a way of putting things together and a certain don't care attitude about clothes.</h3 quote>
 
 ---
 
