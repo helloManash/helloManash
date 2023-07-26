@@ -8,11 +8,11 @@
 
   - 🌱 I’m currently learning **NestJs and deep learning**
 
-  - 💬 Ask me about **React and javascript**
+  - 💬 Ask me anything about **React and javascript**
   
-  - 📫 How to reach me **manashborah075@gmail.com**
+  - 📫 You can reach me on **manashborah075@gmail.com**
   
-  - ⚡ Fun fact **I drink milk and code👀.**
+  - ⚡ Fun fact : **I drink milk and code👀.**
 </p>
 
 
@@ -56,7 +56,7 @@
 </p>
 
 
-[![Manash's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=helloManash&bg_color=1F222E&color=F8D866&line=F85D7F&point=FFFFFF&area=true&hide_border=true)](https://github.com/SarveshMankar/github-readme-activity-graph)
+[![Manash's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=helloManash&bg_color=1F222E&color=F8D866&line=F85D7F&point=FFFFFF&area=true&hide_border=true)](https://github.com/helloManash/github-readme-activity-graph)
 
 
 ## 🔥 Leetcode stats:
