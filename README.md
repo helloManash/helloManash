@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>All successful newspapers are ceaselessly querulous and bellicose.</h3 quote>
+<h3 quote align='center'>You have to think anyway, so why not think big?.</h3 quote>
 
 ---
 
