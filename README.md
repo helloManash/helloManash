@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You have to think anyway, so why not think big?.</h3 quote>
+<h3 quote align='center'>Wonder rather than doubt is the root of all knowledge.</h3 quote>
 
 ---
 
