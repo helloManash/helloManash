@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dreams sometimes foretell the future.</h3 quote>
+<h3 quote align='center'>Thought is the wind, knowledge the sail, and mankind the vessel.</h3 quote>
 
 ---
 
