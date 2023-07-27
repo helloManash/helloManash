@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How glorious a greeting the sun gives the mountains!.</h3 quote>
+<h3 quote align='center'>Dreams sometimes foretell the future.</h3 quote>
 
 ---
 
