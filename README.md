@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I hate these platforms that are all over the place today they are all about grabbing attention.</h3 quote>
+<h3 quote align='center'>If a man dreams that he has committed a sin before which the sun hid his face, it is often safe to conjecture that, in sheer forgetfulness, he wore a red tie, or brown boots with evening dress.</h3 quote>
 
 ---
 
