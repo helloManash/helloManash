@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Thought is the wind, knowledge the sail, and mankind the vessel.</h3 quote>
+<h3 quote align='center'>I hate these platforms that are all over the place today they are all about grabbing attention.</h3 quote>
 
 ---
 
