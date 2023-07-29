@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I developed a mechanism so that whatever mistakes I made, I would bounce straight back.</h3 quote>
+<h3 quote align='center'>A great deal has been written in recent years about the purported lack of motivation in the children of the Negro ghettos.</h3 quote>
 
 ---
 
