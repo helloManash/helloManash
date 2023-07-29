@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If a man dreams that he has committed a sin before which the sun hid his face, it is often safe to conjecture that, in sheer forgetfulness, he wore a red tie, or brown boots with evening dress.</h3 quote>
+<h3 quote align='center'>I developed a mechanism so that whatever mistakes I made, I would bounce straight back.</h3 quote>
 
 ---
 
