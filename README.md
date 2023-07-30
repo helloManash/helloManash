@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Fairness is not an attitude.</h3 quote>
+<h3 quote align='center'>So at a time in which the media give the public everything it wants and desires, maybe art should adopt a much more aggressive attitude towards the public.</h3 quote>
 
 ---
 
