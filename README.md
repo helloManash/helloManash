@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
+<h3 quote align='center'>But are not the dreams of poets and the tales of travellers notoriously false?.</h3 quote>
 
 ---
 
