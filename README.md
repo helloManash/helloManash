@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>But are not the dreams of poets and the tales of travellers notoriously false?.</h3 quote>
+<h3 quote align='center'>What really matters is the name you succeed in imposing on the facts not the facts themselves.</h3 quote>
 
 ---
 
