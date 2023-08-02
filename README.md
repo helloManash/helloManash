@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you look back today over the last 25 years, it is a fact that we have had a progressive degeneration of our intelligence community in general in particular in the field of human intelligence.</h3 quote>
+<h3 quote align='center'>And I argued with that intelligence estimate and I think it is a responsibility of policymakers to use their best judgment on the basis of the intelligence they've received.</h3 quote>
 
 ---
 
