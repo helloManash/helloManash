@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And I argued with that intelligence estimate and I think it is a responsibility of policymakers to use their best judgment on the basis of the intelligence they've received.</h3 quote>
+<h3 quote align='center'>Why be a man when you can be a success?.</h3 quote>
 
 ---
 
