@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Why be a man when you can be a success?.</h3 quote>
+<h3 quote align='center'>Prayer is talking with God.</h3 quote>
 
 ---
 
