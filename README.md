@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I was always someone who lived in the future all the time, it was always the next thing - dreams of escape.</h3 quote>
+<h3 quote align='center'>Where ambition can cover its enterprises, even to the person himself, under the appearance of principle, it is the most incurable and inflexible of passions.</h3 quote>
 
 ---
 
