@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Prayer is talking with God.</h3 quote>
+<h3 quote align='center'>I was always someone who lived in the future all the time, it was always the next thing - dreams of escape.</h3 quote>
 
 ---
 
