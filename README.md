@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Though we may have desires or bold goals, for whatever reason, most of us don't think we can achieve something beyond what we're qualified to achieve.</h3 quote>
+<h3 quote align='center'>As a member of the House Select Committee on Intelligence, I will be participating in several hearings on the startling revelations contained in the report.</h3 quote>
 
 ---
 
