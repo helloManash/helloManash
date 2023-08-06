@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The jokes are great but what really matters for a comedian is his performance, his whole attitude, and the laughs that he gets between the jokes rather than on top of the jokes.</h3 quote>
+<h3 quote align='center'>Though we may have desires or bold goals, for whatever reason, most of us don't think we can achieve something beyond what we're qualified to achieve.</h3 quote>
 
 ---
 
