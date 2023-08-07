@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it.</h3 quote>
+<h3 quote align='center'>The Leadership Training Institute of America is a cultural think tank providing training and opportunity in leadership development and cultural dynamics.</h3 quote>
 
 ---
 
