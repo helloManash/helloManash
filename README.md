@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>As a member of the House Select Committee on Intelligence, I will be participating in several hearings on the startling revelations contained in the report.</h3 quote>
+<h3 quote align='center'>Whenever you're in conflict with someone, there is one factor that can make the difference between damaging your relationship and deepening it.</h3 quote>
 
 ---
 
