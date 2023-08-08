@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is not a harbor but a voyage with its own perils to the spirit.</h3 quote>
+<h3 quote align='center'>I would go to bed every night and have dreams about having a time machine and somehow I'd have the ability to move through time and space freely, and save Anne Frank.</h3 quote>
 
 ---
 
