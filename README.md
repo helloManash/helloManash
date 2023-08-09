@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>God gives us intelligence to uncover the wonders of nature.</h3 quote>
+<h3 quote align='center'>I want American Dream growth - lots of new businesses, well-paying jobs, and American leadership in new industries, like clean energy and biotechnology.</h3 quote>
 
 ---
 
