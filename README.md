@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership is an ever-evolving position.</h3 quote>
+<h3 quote align='center'>It is impossible to underrate human intelligence - beginning with one's own.</h3 quote>
 
 ---
 
