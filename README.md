@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is impossible to underrate human intelligence - beginning with one's own.</h3 quote>
+<h3 quote align='center'>I know why I am here and my only real focused goal is to live each day to the fullest and to try and honor God and be an encouragement to others.</h3 quote>
 
 ---
 
