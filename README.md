@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Stiletto, I look at it more as an attitude as opposed to a high-heeled shoe.</h3 quote>
+<h3 quote align='center'>Age is only a number, a cipher for the records.</h3 quote>
 
 ---
 
