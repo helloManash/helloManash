@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Every charitable act is a stepping stone toward heaven.</h3 quote>
+<h3 quote align='center'>The greatest gift is a passion for reading.</h3 quote>
 
 ---
 
