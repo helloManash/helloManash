@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Don't be afraid of your dreams.</h3 quote>
+<h3 quote align='center'>I also had a mistaken attitude towards certain comrades.</h3 quote>
 
 ---
 
