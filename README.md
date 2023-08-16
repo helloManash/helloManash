@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is not true that people stop pursuing dreams because they grow old, they grow old because they stop pursuing dreams.</h3 quote>
+<h3 quote align='center'>I really had a lot of dreams when I was a kid, and I think a great deal of that grew out of the fact that I had a chance to read a lot.</h3 quote>
 
 ---
 
