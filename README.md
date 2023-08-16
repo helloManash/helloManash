@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I also had a mistaken attitude towards certain comrades.</h3 quote>
+<h3 quote align='center'>It is not true that people stop pursuing dreams because they grow old, they grow old because they stop pursuing dreams.</h3 quote>
 
 ---
 
