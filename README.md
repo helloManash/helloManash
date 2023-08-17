@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I just want to be myself and go for my own dreams and goals.</h3 quote>
+<h3 quote align='center'>Think with your whole body.</h3 quote>
 
 ---
 
