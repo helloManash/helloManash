@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I really had a lot of dreams when I was a kid, and I think a great deal of that grew out of the fact that I had a chance to read a lot.</h3 quote>
+<h3 quote align='center'>I just want to be myself and go for my own dreams and goals.</h3 quote>
 
 ---
 
