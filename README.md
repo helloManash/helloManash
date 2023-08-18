@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Think with your whole body.</h3 quote>
+<h3 quote align='center'>The truth is on the march and nothing will stop it.</h3 quote>
 
 ---
 
