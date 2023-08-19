@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Sensible and responsible women do not want to vote.</h3 quote>
+<h3 quote align='center'>Lonesome.</h3 quote>
 
 ---
 
