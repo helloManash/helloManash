@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You learn far more from negative leadership than from positive leadership.</h3 quote>
+<h3 quote align='center'>Sensible and responsible women do not want to vote.</h3 quote>
 
 ---
 
