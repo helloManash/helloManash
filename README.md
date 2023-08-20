@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Lonesome.</h3 quote>
+<h3 quote align='center'>If at first you don't succeed you're running about average.</h3 quote>
 
 ---
 
