@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If at first you don't succeed you're running about average.</h3 quote>
+<h3 quote align='center'>God sleeps in the minerals, awakens in plants, walks in animals, and thinks in man.</h3 quote>
 
 ---
 
