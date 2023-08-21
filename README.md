@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>God sleeps in the minerals, awakens in plants, walks in animals, and thinks in man.</h3 quote>
+<h3 quote align='center'>Acting is magical.</h3 quote>
 
 ---
 
