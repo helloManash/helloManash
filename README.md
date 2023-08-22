@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Yesterday is but today's memory, and tomorrow is today's dream.</h3 quote>
+<h3 quote align='center'>We had a military and political leadership at that period which was genuinely deluded.</h3 quote>
 
 ---
 
