@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We had a military and political leadership at that period which was genuinely deluded.</h3 quote>
+<h3 quote align='center'>Human folk are as a matter of fact eager to find intelligence in animals.</h3 quote>
 
 ---
 
