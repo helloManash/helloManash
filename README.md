@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Stiletto, I look at it more as an attitude as opposed to a high-heeled shoe.</h3 quote>
+<h3 quote align='center'>If history repeats itself, and the unexpected always happens, how incapable must Man be of learning from experience.</h3 quote>
 
 ---
 
