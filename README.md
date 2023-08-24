@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If history repeats itself, and the unexpected always happens, how incapable must Man be of learning from experience.</h3 quote>
+<h3 quote align='center'>Even as a little child, I've always had that comedian kind of attitude.</h3 quote>
 
 ---
 
