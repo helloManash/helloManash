@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In the fifties I had dreams about touching a naked woman and she would turn to bronze or the dream about hot dogs chasing donuts through the Lincoln Tunnel.</h3 quote>
+<h3 quote align='center'>Talking with you is sort of the conversational equivalent of an out of body experience.</h3 quote>
 
 ---
 
