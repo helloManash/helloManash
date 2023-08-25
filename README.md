@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Even as a little child, I've always had that comedian kind of attitude.</h3 quote>
+<h3 quote align='center'>In the fifties I had dreams about touching a naked woman and she would turn to bronze or the dream about hot dogs chasing donuts through the Lincoln Tunnel.</h3 quote>
 
 ---
 
