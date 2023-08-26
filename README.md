@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Talking with you is sort of the conversational equivalent of an out of body experience.</h3 quote>
+<h3 quote align='center'>Adopting the right attitude can convert a negative stress into a positive one.</h3 quote>
 
 ---
 
