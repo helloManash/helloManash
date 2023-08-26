@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Adopting the right attitude can convert a negative stress into a positive one.</h3 quote>
+<h3 quote align='center'>Dream and give yourself permission to envision a You that you choose to be.</h3 quote>
 
 ---
 
