@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dream and give yourself permission to envision a You that you choose to be.</h3 quote>
+<h3 quote align='center'>Intelligence is not to make no mistakes, but quickly to see how to make them good.</h3 quote>
 
 ---
 
