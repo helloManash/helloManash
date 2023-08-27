@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Intelligence is not to make no mistakes, but quickly to see how to make them good.</h3 quote>
+<h3 quote align='center'>When all of your wishes are granted, many of your dreams will be destroyed.</h3 quote>
 
 ---
 
