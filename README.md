@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</h3 quote>
+<h3 quote align='center'>If you become a success, you don't change everyone else does.</h3 quote>
 
 ---
 
