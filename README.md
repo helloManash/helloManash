@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The science of politics is the one science that is deposited by the streams of history, like the grains of gold in the sand of a river and the knowledge of the past, the record of truths revealed by experience, is eminently practical, as an instrument of action and a power that goes to making the future.</h3 quote>
+<h3 quote align='center'>Foolishness is rarely a matter of lack of intelligence or even lack of information.</h3 quote>
 
 ---
 
