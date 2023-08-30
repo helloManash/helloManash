@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Making good decisions is a crucial skill at every level.</h3 quote>
+<h3 quote align='center'>People have an image of Italians.</h3 quote>
 
 ---
 
