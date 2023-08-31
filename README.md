@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you want to run, run a mile.</h3 quote>
+<h3 quote align='center'>Music is subjective to everyone's unique experience.</h3 quote>
 
 ---
 
