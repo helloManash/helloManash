@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>People have an image of Italians.</h3 quote>
+<h3 quote align='center'>If you want to run, run a mile.</h3 quote>
 
 ---
 
