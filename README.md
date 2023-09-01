@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Music is subjective to everyone's unique experience.</h3 quote>
+<h3 quote align='center'>When our governments want to sell us a course of action, they do it by making sure it's the only thing on the agenda, the only thing everyone's talking about.</h3 quote>
 
 ---
 
