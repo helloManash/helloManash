@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The American attitude towards efficiency and execution should always underlie architecture.</h3 quote>
+<h3 quote align='center'>The successful people are the ones who can think up things for the rest of the world to keep busy at.</h3 quote>
 
 ---
 
