@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The successful people are the ones who can think up things for the rest of the world to keep busy at.</h3 quote>
+<h3 quote align='center'>A #2 pencil and a dream can take you anywhere.</h3 quote>
 
 ---
 
