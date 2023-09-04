@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A #2 pencil and a dream can take you anywhere.</h3 quote>
+<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
 
 ---
 
