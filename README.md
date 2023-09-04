@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
+<h3 quote align='center'>Whatever dreams I have wished have come true.</h3 quote>
 
 ---
 
