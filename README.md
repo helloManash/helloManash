@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Whatever dreams I have wished have come true.</h3 quote>
+<h3 quote align='center'>Yesterday we obeyed kings and bent our necks before emperors.</h3 quote>
 
 ---
 
