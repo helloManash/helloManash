@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The best form of flattery is to be admired, imitated or respected.</h3 quote>
+<h3 quote align='center'>The truth is on the march and nothing will stop it.</h3 quote>
 
 ---
 
