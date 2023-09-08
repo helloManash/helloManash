@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success, as I see it, is a result, not a goal.</h3 quote>
+<h3 quote align='center'>Age is only a number, a cipher for the records.</h3 quote>
 
 ---
 
