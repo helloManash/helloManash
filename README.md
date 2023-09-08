@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The truth is on the march and nothing will stop it.</h3 quote>
+<h3 quote align='center'>Success, as I see it, is a result, not a goal.</h3 quote>
 
 ---
 
