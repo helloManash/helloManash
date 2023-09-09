@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Age is only a number, a cipher for the records.</h3 quote>
+<h3 quote align='center'>I believe Business Objects is on the cusp of becoming a multi-billion-dollar sales company.</h3 quote>
 
 ---
 
