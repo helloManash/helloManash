@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I believe Business Objects is on the cusp of becoming a multi-billion-dollar sales company.</h3 quote>
+<h3 quote align='center'>Most men are very attached to the idea of being male, and usually experience a lot of fear and insecurity around the idea of being a man.</h3 quote>
 
 ---
 
