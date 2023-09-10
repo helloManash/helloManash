@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Most men are very attached to the idea of being male, and usually experience a lot of fear and insecurity around the idea of being a man.</h3 quote>
+<h3 quote align='center'>Success is the child of audacity.</h3 quote>
 
 ---
 
