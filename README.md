@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is the child of audacity.</h3 quote>
+<h3 quote align='center'>Knowledge comes, but wisdom lingers.</h3 quote>
 
 ---
 
