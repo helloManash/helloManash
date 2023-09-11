@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A man can do only what he can do.</h3 quote>
+<h3 quote align='center'>There is only one thing which can master the perplexed stuff of epic material into unity and that is, an ability to see in particular human experience some significant symbolism of man's general destiny.</h3 quote>
 
 ---
 
