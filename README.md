@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Knowledge comes, but wisdom lingers.</h3 quote>
+<h3 quote align='center'>A man can do only what he can do.</h3 quote>
 
 ---
 
