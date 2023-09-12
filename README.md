@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Gardening is not trivial.</h3 quote>
+<h3 quote align='center'>A great attitude does much more than turn on the lights in our worlds it seems to magically connect us to all sorts of serendipitous opportunities that were somehow absent before the change.</h3 quote>
 
 ---
 
