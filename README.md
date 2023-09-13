@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>People have an image of Italians.</h3 quote>
+<h3 quote align='center'>I never felt I would be part of the international scene for 50 caps in my wildest dreams.</h3 quote>
 
 ---
 
