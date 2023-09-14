@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you go on stage with the wrong attitude, or something in your performance is off, you can lose an audience in the first minute.</h3 quote>
+<h3 quote align='center'>We need to make a greater investment in human intelligence.</h3 quote>
 
 ---
 
