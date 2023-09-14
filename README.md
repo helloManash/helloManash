@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I never felt I would be part of the international scene for 50 caps in my wildest dreams.</h3 quote>
+<h3 quote align='center'>If you go on stage with the wrong attitude, or something in your performance is off, you can lose an audience in the first minute.</h3 quote>
 
 ---
 
