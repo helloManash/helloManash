@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Innovation distinguishes between a leader and a follower.</h3 quote>
+<h3 quote align='center'>From the lowest animals of which we can affirm intelligence up to man this type of intellect is found.</h3 quote>
 
 ---
 
