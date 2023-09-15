@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We need to make a greater investment in human intelligence.</h3 quote>
+<h3 quote align='center'>Innovation distinguishes between a leader and a follower.</h3 quote>
 
 ---
 
