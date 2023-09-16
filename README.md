@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>From the lowest animals of which we can affirm intelligence up to man this type of intellect is found.</h3 quote>
+<h3 quote align='center'>The employer class is less indispensable in the modern organization of industries because the laboring men themselves possess sufficient intelligence to organize into co-operative relation and enjoy the entire benefits of their own labor.</h3 quote>
 
 ---
 
