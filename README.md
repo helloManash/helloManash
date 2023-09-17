@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Management is doing things right leadership is doing the right things.</h3 quote>
+<h3 quote align='center'>It is better to fail in a cause that will ultimately succeed than to succeed in a cause that will ultimately fail.</h3 quote>
 
 ---
 
