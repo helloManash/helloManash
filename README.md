@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The future belongs to those who believe in the beauty of their dreams.</h3 quote>
+<h3 quote align='center'>I was always the guy getting kicked out of my classes at school for having an attitude problem.</h3 quote>
 
 ---
 
