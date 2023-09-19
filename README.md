@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leaders must be close enough to relate to others, but far enough ahead to motivate them.</h3 quote>
+<h3 quote align='center'>Though I know he loves me, tonight my heart is sad his kiss was not so wonderful as all the dreams I had.</h3 quote>
 
 ---
 
