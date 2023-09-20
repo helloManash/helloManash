@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The world is seldom what it seems to man, who dimly sees, realities appear as dreams, and dreams realities.</h3 quote>
+<h3 quote align='center'>Animals have a much better attitude to life and death than we do.</h3 quote>
 
 ---
 
