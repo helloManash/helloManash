@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Though I know he loves me, tonight my heart is sad his kiss was not so wonderful as all the dreams I had.</h3 quote>
+<h3 quote align='center'>The world is seldom what it seems to man, who dimly sees, realities appear as dreams, and dreams realities.</h3 quote>
 
 ---
 
