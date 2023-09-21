@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Animals have a much better attitude to life and death than we do.</h3 quote>
+<h3 quote align='center'>Too many problem-solving sessions become battlegrounds where decisions are made based on power rather than intelligence.</h3 quote>
 
 ---
 
