@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I can't see what's wrong about assuming intelligence in your audience and what's bad news about being rewarded for assuming that.</h3 quote>
+<h3 quote align='center'>Happiness is the natural flower of duty.</h3 quote>
 
 ---
 
