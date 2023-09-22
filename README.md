@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Happiness is the natural flower of duty.</h3 quote>
+<h3 quote align='center'>Guantanamo allows us to secure dangerous detainees without the risk of escape, while at the same time providing us with valuable intelligence information on how best to proceed in the war against terror and prevent future attacks.</h3 quote>
 
 ---
 
