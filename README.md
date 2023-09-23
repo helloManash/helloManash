@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Science is the highest personification of the nation because that nation will remain the first which carries the furthest the works of thought and intelligence.</h3 quote>
+<h3 quote align='center'>Al Qaeda is not the organization now that it was before.</h3 quote>
 
 ---
 
