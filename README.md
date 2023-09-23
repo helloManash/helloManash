@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Guantanamo allows us to secure dangerous detainees without the risk of escape, while at the same time providing us with valuable intelligence information on how best to proceed in the war against terror and prevent future attacks.</h3 quote>
+<h3 quote align='center'>Science is the highest personification of the nation because that nation will remain the first which carries the furthest the works of thought and intelligence.</h3 quote>
 
 ---
 
