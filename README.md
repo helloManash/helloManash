@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I developed a mechanism so that whatever mistakes I made, I would bounce straight back.</h3 quote>
+<h3 quote align='center'>Horror, for me, has to involve some sort of fantasy.</h3 quote>
 
 ---
 
