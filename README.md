@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Corporate America cannot afford to remain silent or passive about the downward spiral we are undergoing.</h3 quote>
+<h3 quote align='center'>The House Republican leadership has simply run out of ideas.</h3 quote>
 
 ---
 
