@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The House Republican leadership has simply run out of ideas.</h3 quote>
+<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
 
 ---
 
