@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
+<h3 quote align='center'>A noble man compares and estimates himself by an idea which is higher than himself; and a mean man, by one lower than himself.</h3 quote>
 
 ---
 
