@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The townspeople outside the reservations had a very superior attitude toward Indians, which was kind of funny, because they weren't very wealthy they were on the fringes of society themselves.</h3 quote>
+<h3 quote align='center'>Religion points to that area of human experience where in one way or another man comes upon mystery as a summons to pilgrimage.</h3 quote>
 
 ---
 
