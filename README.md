@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A noble man compares and estimates himself by an idea which is higher than himself; and a mean man, by one lower than himself.</h3 quote>
+<h3 quote align='center'>The townspeople outside the reservations had a very superior attitude toward Indians, which was kind of funny, because they weren't very wealthy they were on the fringes of society themselves.</h3 quote>
 
 ---
 
