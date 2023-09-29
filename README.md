@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Religion points to that area of human experience where in one way or another man comes upon mystery as a summons to pilgrimage.</h3 quote>
+<h3 quote align='center'>The attitude and capacity of the factory, the old metal table and the new ideas of the wooden furniture quickly and naturally suggested the possibility of metal furniture.</h3 quote>
 
 ---
 
