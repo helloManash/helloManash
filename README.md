@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The attitude and capacity of the factory, the old metal table and the new ideas of the wooden furniture quickly and naturally suggested the possibility of metal furniture.</h3 quote>
+<h3 quote align='center'>If an animal does something, we call it instinct if we do the same thing for the same reason, we call it intelligence.</h3 quote>
 
 ---
 
