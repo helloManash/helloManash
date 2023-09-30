@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If an animal does something, we call it instinct if we do the same thing for the same reason, we call it intelligence.</h3 quote>
+<h3 quote align='center'>Many people have the ambition to succeed in their work; they may even have special aptitude for their job.</h3 quote>
 
 ---
 
