@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Many people have the ambition to succeed in their work; they may even have special aptitude for their job.</h3 quote>
+<h3 quote align='center'>We can no longer expect an Intelligence Community that is mostly male and mostly white to be able to monitor and infiltrate suspicious organizations or terrorist groups.</h3 quote>
 
 ---
 
