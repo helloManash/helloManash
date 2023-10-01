@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We can no longer expect an Intelligence Community that is mostly male and mostly white to be able to monitor and infiltrate suspicious organizations or terrorist groups.</h3 quote>
+<h3 quote align='center'>The most authentic thing about us is our capacity to create, to overcome, to endure, to transform, to love and to be greater than our suffering.</h3 quote>
 
 ---
 
