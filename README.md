@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The most authentic thing about us is our capacity to create, to overcome, to endure, to transform, to love and to be greater than our suffering.</h3 quote>
+<h3 quote align='center'>Our ideals are our better selves.</h3 quote>
 
 ---
 
