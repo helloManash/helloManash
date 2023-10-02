@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our ideals are our better selves.</h3 quote>
+<h3 quote align='center'>A place for everything, everything in its place.</h3 quote>
 
 ---
 
