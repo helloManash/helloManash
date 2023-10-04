@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A leader is one who knows the way, goes the way, and shows the way.</h3 quote>
+<h3 quote align='center'>Today's students can put dope in their veins or hope in their brains.</h3 quote>
 
 ---
 
