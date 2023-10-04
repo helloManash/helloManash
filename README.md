@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Today's students can put dope in their veins or hope in their brains.</h3 quote>
+<h3 quote align='center'>Success is overrated.</h3 quote>
 
 ---
 
