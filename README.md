@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
+<h3 quote align='center'>One is to ensure that the war fighters and the intelligence analysts get the information that they need when they need it, in a format that's useful to them.</h3 quote>
 
 ---
 
