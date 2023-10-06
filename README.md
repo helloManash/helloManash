@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It took me years to understand that words are often as important as experience, because words make experience last.</h3 quote>
+<h3 quote align='center'>I understand it's my role to realize people's dreams.</h3 quote>
 
 ---
 
