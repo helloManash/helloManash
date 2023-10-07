@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I understand it's my role to realize people's dreams.</h3 quote>
+<h3 quote align='center'>A compliment is something like a kiss through a veil.</h3 quote>
 
 ---
 
