@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A compliment is something like a kiss through a veil.</h3 quote>
+<h3 quote align='center'>Leadership is the capacity to translate vision into reality.</h3 quote>
 
 ---
 
