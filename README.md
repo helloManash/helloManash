@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You change your life by changing your heart.</h3 quote>
+<h3 quote align='center'>Look within.</h3 quote>
 
 ---
 
