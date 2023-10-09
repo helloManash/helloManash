@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Look within.</h3 quote>
+<h3 quote align='center'>The successful leader does not talk down to people.</h3 quote>
 
 ---
 
