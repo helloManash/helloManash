@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Happiness is the natural flower of duty.</h3 quote>
+<h3 quote align='center'>The last of human freedoms - the ability to chose one's attitude in a given set of circumstances.</h3 quote>
 
 ---
 
