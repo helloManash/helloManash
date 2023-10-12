@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You may not be able to change a situation, but with humor you can change your attitude about it.</h3 quote>
+<h3 quote align='center'>Advertising must respect the intelligence of its audience and if it does not prompt them to think, it will be instantly dismissed.</h3 quote>
 
 ---
 
