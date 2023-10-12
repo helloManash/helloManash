@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There's always room at the top.</h3 quote>
+<h3 quote align='center'>You may not be able to change a situation, but with humor you can change your attitude about it.</h3 quote>
 
 ---
 
