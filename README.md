@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Advertising must respect the intelligence of its audience and if it does not prompt them to think, it will be instantly dismissed.</h3 quote>
+<h3 quote align='center'>But what I was going to say was, I just figured I'm going to go boldly in the direction of my dreams, say it as Thoreau would say, and just see where it takes me.</h3 quote>
 
 ---
 
