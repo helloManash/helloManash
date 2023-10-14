@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The E.</h3 quote>
+<h3 quote align='center'>I don't dream songs.</h3 quote>
 
 ---
 
