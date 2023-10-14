@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't dream songs.</h3 quote>
+<h3 quote align='center'>When I was a child I asked my mother what homosexuality was about and she said - and this was 100 years ago in Germany and she was very open-minded - 'It's like hair color.</h3 quote>
 
 ---
 
