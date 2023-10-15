@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I love her attitude, but as much as I'd like to bring my medals to a speech or appearance, I never do.</h3 quote>
+<h3 quote align='center'>I do not know whether I was then a man dreaming I was a butterfly, or whether I am now a butterfly dreaming I am a man.</h3 quote>
 
 ---
 
