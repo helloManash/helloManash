@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In high school, I was on the youth advisory council for the Mayor's Office of Los Angeles, and that was kind of my first experience in the bureaucratic system.</h3 quote>
+<h3 quote align='center'>Today's youth are told to get rich or die trying and they really shouldn't take that attitude forward with them.</h3 quote>
 
 ---
 
