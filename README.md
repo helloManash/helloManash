@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Public office is supposed to be a public trust.</h3 quote>
+<h3 quote align='center'>You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.</h3 quote>
 
 ---
 
