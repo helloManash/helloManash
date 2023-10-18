@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.</h3 quote>
+<h3 quote align='center'>Everyone here has the sense that right now is one of those moments when we are influencing the future.</h3 quote>
 
 ---
 
