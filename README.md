@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In oneself lies the whole world and if you know how to look and learn, the door is there and the key is in your hand.</h3 quote>
+<h3 quote align='center'>If you have ideas, you have the main asset you need, and there isn't any limit to what you can do with your business and your life.</h3 quote>
 
 ---
 
