@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is being nothing but a quote.</h3 quote>
+<h3 quote align='center'>In oneself lies the whole world and if you know how to look and learn, the door is there and the key is in your hand.</h3 quote>
 
 ---
 
