@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you have ideas, you have the main asset you need, and there isn't any limit to what you can do with your business and your life.</h3 quote>
+<h3 quote align='center'>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</h3 quote>
 
 ---
 
