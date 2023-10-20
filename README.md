@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</h3 quote>
+<h3 quote align='center'>With my talent, I can make people laugh and give them another attitude about life.</h3 quote>
 
 ---
 
