@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>With my talent, I can make people laugh and give them another attitude about life.</h3 quote>
+<h3 quote align='center'>Plant thy foot firmly in the prints which His foot has made before thee.</h3 quote>
 
 ---
 
