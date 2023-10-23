@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I am responsible.</h3 quote>
+<h3 quote align='center'>Our lives are not determined by what happens to us but how we react to what happens, not by what life brings us but the attitude we bring to life.</h3 quote>
 
 ---
 
