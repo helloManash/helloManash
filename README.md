@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A positive attitude can really make dreams come true - it did for me.</h3 quote>
+<h3 quote align='center'>The ideal attitude is to be physically loose and mentally tight.</h3 quote>
 
 ---
 
