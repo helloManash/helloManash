@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The ideal attitude is to be physically loose and mentally tight.</h3 quote>
+<h3 quote align='center'>Reason is an action of the mind knowledge is a possession of the mind but faith is an attitude of the person.</h3 quote>
 
 ---
 
