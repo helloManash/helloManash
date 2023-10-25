@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Let us build a 21st-century rural economy of cutting-edge companies and technologies that lead us to energy and food security.</h3 quote>
+<h3 quote align='center'>I believe that one defines oneself by reinvention.</h3 quote>
 
 ---
 
