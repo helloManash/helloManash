@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Reason is an action of the mind knowledge is a possession of the mind but faith is an attitude of the person.</h3 quote>
+<h3 quote align='center'>Let us build a 21st-century rural economy of cutting-edge companies and technologies that lead us to energy and food security.</h3 quote>
 
 ---
 
