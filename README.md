@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The Irish Republican Army has kept every commitment made by its leadership.</h3 quote>
+<h3 quote align='center'>.</h3 quote>
 
 ---
 
