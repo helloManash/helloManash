@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I believe that one defines oneself by reinvention.</h3 quote>
+<h3 quote align='center'>The Irish Republican Army has kept every commitment made by its leadership.</h3 quote>
 
 ---
 
