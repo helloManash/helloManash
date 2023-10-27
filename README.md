@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>.</h3 quote>
+<h3 quote align='center'>A spy, like a writer, lives outside the mainstream population.</h3 quote>
 
 ---
 
