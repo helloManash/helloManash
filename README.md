@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A spy, like a writer, lives outside the mainstream population.</h3 quote>
+<h3 quote align='center'>The glow of one warm thought is to me worth more than money.</h3 quote>
 
 ---
 
