@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience hath shewn, that even under the best forms of government those entrusted with power have, in time, and by slow operations, perverted it into tyranny.</h3 quote>
+<h3 quote align='center'>My life path has been a blessing and a great learning experience.</h3 quote>
 
 ---
 
