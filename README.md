@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My life path has been a blessing and a great learning experience.</h3 quote>
+<h3 quote align='center'>Many women my age have known the experience of giving up crucial parts of themselves to please the man they love.</h3 quote>
 
 ---
 
