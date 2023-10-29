@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Many women my age have known the experience of giving up crucial parts of themselves to please the man they love.</h3 quote>
+<h3 quote align='center'>The fact that I can plant a seed and it becomes a flower, share a bit of knowledge and it becomes another's, smile at someone and receive a smile in return, are to me continual spiritual exercises.</h3 quote>
 
 ---
 
