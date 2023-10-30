@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If there are dreams about a beautiful South Africa, there are also roads that lead to their goal.</h3 quote>
+<h3 quote align='center'>If you wish to reach the highest, begin at the lowest.</h3 quote>
 
 ---
 
