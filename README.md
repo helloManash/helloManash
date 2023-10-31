@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Today's youth are told to get rich or die trying and they really shouldn't take that attitude forward with them.</h3 quote>
+<h3 quote align='center'>Ideas shape the course of history.</h3 quote>
 
 ---
 
