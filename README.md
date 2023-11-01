@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ideas shape the course of history.</h3 quote>
+<h3 quote align='center'>Even with, or perhaps, because of, this background, I have over the past few years sensed a very dramatic change in attitude on the part of Prince Edward Islanders towards the on-going rush for so-called modernization.</h3 quote>
 
 ---
 
