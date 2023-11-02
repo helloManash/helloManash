@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If I don't make the team out of spring training, I'll keep a good attitude.</h3 quote>
+<h3 quote align='center'>Avatar' is the greatest, most comprehensive collection of movie cliches ever assembled, but it's put together in a brand new way with a new technology, and tremendous imagination, making it a true epic and a kind of a milestone.</h3 quote>
 
 ---
 
