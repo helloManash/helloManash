@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I think it's your mental attitude.</h3 quote>
+<h3 quote align='center'>Lonesome.</h3 quote>
 
 ---
 
