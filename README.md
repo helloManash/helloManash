@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What we achieve inwardly will change outer reality.</h3 quote>
+<h3 quote align='center'>If God be God and man a creature made in image of the divine intelligence, his noblest function is the search for truth.</h3 quote>
 
 ---
 
