@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If God be God and man a creature made in image of the divine intelligence, his noblest function is the search for truth.</h3 quote>
+<h3 quote align='center'>I had the experience last year of directing my first feature while I had a 1-year-old son and while I was also pregnant, so I am now well aware of the difficulties women who are rearing children face when they're also trying to make headway in mainstream of film.</h3 quote>
 
 ---
 
