@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I had the experience last year of directing my first feature while I had a 1-year-old son and while I was also pregnant, so I am now well aware of the difficulties women who are rearing children face when they're also trying to make headway in mainstream of film.</h3 quote>
+<h3 quote align='center'>Dream and give yourself permission to envision a You that you choose to be.</h3 quote>
 
 ---
 
