@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dream and give yourself permission to envision a You that you choose to be.</h3 quote>
+<h3 quote align='center'>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think.</h3 quote>
 
 ---
 
