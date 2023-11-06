@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The attitude that nature is chaotic and that the artist puts order into it is a very absurd point of view, I think.</h3 quote>
+<h3 quote align='center'>Everything can be taken from a man but one thing: the last of human freedoms - to choose one's attitude in any given set of circumstances, to choose one's own way.</h3 quote>
 
 ---
 
