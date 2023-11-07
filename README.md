@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Here, again, as I conceive, gentlemen forget that this government is a republican one, resting exclusively in the intelligence and virtue of the People.</h3 quote>
+<h3 quote align='center'>Many of the insights of the saint stem from their experience as sinners.</h3 quote>
 
 ---
 
