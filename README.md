@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The Dalai Lama.</h3 quote>
+<h3 quote align='center'>The human imagination.</h3 quote>
 
 ---
 
