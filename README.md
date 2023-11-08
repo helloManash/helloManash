@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Many of the insights of the saint stem from their experience as sinners.</h3 quote>
+<h3 quote align='center'>The Dalai Lama.</h3 quote>
 
 ---
 
