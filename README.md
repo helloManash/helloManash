@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I failed the LSAT.</h3 quote>
+<h3 quote align='center'>They were using the dolls to project their dreams of their own futures as adult women.</h3 quote>
 
 ---
 
