@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The human imagination.</h3 quote>
+<h3 quote align='center'>I failed the LSAT.</h3 quote>
 
 ---
 
