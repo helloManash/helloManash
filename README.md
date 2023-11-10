@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What we heard today was not fiscal leadership from our Commander-in-Chief, what we heard today was a political broadside from our Campaigner-in-Chief.</h3 quote>
+<h3 quote align='center'>Only those who have learned the power of sincere and selfless contribution experience life's deepest joy: true fulfillment.</h3 quote>
 
 ---
 
