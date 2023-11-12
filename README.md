@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Sometimes when we weep in the movies we weep for ourselves or for a life unlived.</h3 quote>
+<h3 quote align='center'>Success is a public affair.</h3 quote>
 
 ---
 
