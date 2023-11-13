@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There has not yet been a major ground offensive battle.</h3 quote>
+<h3 quote align='center'>Plant thy foot firmly in the prints which His foot has made before thee.</h3 quote>
 
 ---
 
