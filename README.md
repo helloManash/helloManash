@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is a public affair.</h3 quote>
+<h3 quote align='center'>There has not yet been a major ground offensive battle.</h3 quote>
 
 ---
 
