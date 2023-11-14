@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We have a country to turn around.</h3 quote>
+<h3 quote align='center'>The trouble with the Labour Party leadership and the trade union leadership, they're quite willing to applaud millions on the streets of the Philippines or in Eastern Europe, without understanding the need to also produce millions of people on the streets of Britain.</h3 quote>
 
 ---
 
