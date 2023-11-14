@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Plant thy foot firmly in the prints which His foot has made before thee.</h3 quote>
+<h3 quote align='center'>We have a country to turn around.</h3 quote>
 
 ---
 
