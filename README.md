@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The problem was just a mean attitude that festers and has to be challenged.</h3 quote>
+<h3 quote align='center'>Only one thing can conquer war - that attitude of mind which can see nothing in war but destruction and annihilation.</h3 quote>
 
 ---
 
