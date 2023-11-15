@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The trouble with the Labour Party leadership and the trade union leadership, they're quite willing to applaud millions on the streets of the Philippines or in Eastern Europe, without understanding the need to also produce millions of people on the streets of Britain.</h3 quote>
+<h3 quote align='center'>The problem was just a mean attitude that festers and has to be challenged.</h3 quote>
 
 ---
 
