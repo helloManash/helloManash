@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Only one thing can conquer war - that attitude of mind which can see nothing in war but destruction and annihilation.</h3 quote>
+<h3 quote align='center'>Enthusiasm moves the world.</h3 quote>
 
 ---
 
