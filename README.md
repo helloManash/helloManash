@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I got pregnant at 40 by surprise.</h3 quote>
+<h3 quote align='center'>It is our attitude at the beginning of a difficult task which, more than anything else, will affect its successful outcome.</h3 quote>
 
 ---
 
