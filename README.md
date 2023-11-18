@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The cautious seldom err.</h3 quote>
+<h3 quote align='center'>What nourishes us at home and in school is what inspires us.</h3 quote>
 
 ---
 
