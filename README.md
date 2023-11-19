@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
+<h3 quote align='center'>If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.</h3 quote>
 
 ---
 
