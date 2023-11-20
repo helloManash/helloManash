@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Here's the teaching point, if you're teaching kids about intelligence and policy: Intelligence does not absolve policymakers of responsibility to ask tough questions, and it doesn't absolve them of having curiosity about the consequences of their actions.</h3 quote>
+<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
 
 ---
 
