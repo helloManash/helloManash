@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you have a positive attitude and constantly strive to give your best effort, eventually you will overcome your immediate problems and find you are ready for greater challenges.</h3 quote>
+<h3 quote align='center'>Here's the teaching point, if you're teaching kids about intelligence and policy: Intelligence does not absolve policymakers of responsibility to ask tough questions, and it doesn't absolve them of having curiosity about the consequences of their actions.</h3 quote>
 
 ---
 
