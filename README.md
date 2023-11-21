@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you can attribute your success entirely to your own mental effort, to your own attitude, to some spiritual essence that you have that is better than other people's, then that must feel pretty good.</h3 quote>
+<h3 quote align='center'>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</h3 quote>
 
 ---
 
