@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
+<h3 quote align='center'>If you can attribute your success entirely to your own mental effort, to your own attitude, to some spiritual essence that you have that is better than other people's, then that must feel pretty good.</h3 quote>
 
 ---
 
