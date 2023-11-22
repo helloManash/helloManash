@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Because management deals mostly with the status quo and leadership deals mostly with change, in the next century we are going to have to try to become much more skilled at creating leaders.</h3 quote>
+<h3 quote align='center'>Keep your dreams alive.</h3 quote>
 
 ---
 
