@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Not every religion has to have St.</h3 quote>
+<h3 quote align='center'>I think what he's - what he believes, and he may be correct, I don't know, that we have some intelligence information that leads us to know some things about what's going on in Iraq that we haven't revealed to others.</h3 quote>
 
 ---
 
