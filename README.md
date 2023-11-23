@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep your dreams alive.</h3 quote>
+<h3 quote align='center'>Not every religion has to have St.</h3 quote>
 
 ---
 
