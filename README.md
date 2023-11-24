@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I think the greater responsibility, in terms of morality, is where leadership begins.</h3 quote>
+<h3 quote align='center'>Black leadership has to recognize that principles more than speech, character more than a claim, is greater in advancing the cause of our liberation than what has transpired thus far.</h3 quote>
 
 ---
 
