@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We live in a society obsessed with public opinion.</h3 quote>
+<h3 quote align='center'>America won the Cold War by protecting our strategic resources from the threat of foreign control.</h3 quote>
 
 ---
 
