@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Black leadership has to recognize that principles more than speech, character more than a claim, is greater in advancing the cause of our liberation than what has transpired thus far.</h3 quote>
+<h3 quote align='center'>We live in a society obsessed with public opinion.</h3 quote>
 
 ---
 
