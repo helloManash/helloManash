@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>America won the Cold War by protecting our strategic resources from the threat of foreign control.</h3 quote>
+<h3 quote align='center'>Art is the child of Nature yes, her darling child, in whom we trace the features of the mother's face, her aspect and her attitude.</h3 quote>
 
 ---
 
