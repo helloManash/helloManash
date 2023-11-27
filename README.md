@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I have looked into your eyes with my eyes.</h3 quote>
+<h3 quote align='center'>Ideas shape the course of history.</h3 quote>
 
 ---
 
