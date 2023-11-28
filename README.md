@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Europe is difficult to coordinate, and our main deficit may not even lie in this area of finance and economics, but in foreign and security policy.</h3 quote>
+<h3 quote align='center'>Clouds come floating into my life, no longer to carry rain or usher storm, but to add color to my sunset sky.</h3 quote>
 
 ---
 
