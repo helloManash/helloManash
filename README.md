@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ideas shape the course of history.</h3 quote>
+<h3 quote align='center'>Europe is difficult to coordinate, and our main deficit may not even lie in this area of finance and economics, but in foreign and security policy.</h3 quote>
 
 ---
 
