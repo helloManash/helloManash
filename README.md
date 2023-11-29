@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The fact that I can plant a seed and it becomes a flower, share a bit of knowledge and it becomes another's, smile at someone and receive a smile in return, are to me continual spiritual exercises.</h3 quote>
+<h3 quote align='center'>I don't know that I have any role models now that are fixed.</h3 quote>
 
 ---
 
