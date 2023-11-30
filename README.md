@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Such highly qualitative leadership is demanded especially in the realm of the fostering of right international relations.</h3 quote>
+<h3 quote align='center'>For success, attitude is equally as important as ability.</h3 quote>
 
 ---
 
