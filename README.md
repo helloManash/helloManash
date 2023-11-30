@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't know that I have any role models now that are fixed.</h3 quote>
+<h3 quote align='center'>Such highly qualitative leadership is demanded especially in the realm of the fostering of right international relations.</h3 quote>
 
 ---
 
