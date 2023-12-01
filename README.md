@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Just what future the Designer of the universe has provided for the souls of men I do not know, I cannot prove.</h3 quote>
+<h3 quote align='center'>I think it is important to ask ourselves as citizens, not as Democrats attacking the administration, but as citizens, whether a world power can really provide global leadership on the basis of fear and anxiety?.</h3 quote>
 
 ---
 
