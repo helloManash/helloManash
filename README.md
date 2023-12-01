@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>For success, attitude is equally as important as ability.</h3 quote>
+<h3 quote align='center'>Just what future the Designer of the universe has provided for the souls of men I do not know, I cannot prove.</h3 quote>
 
 ---
 
