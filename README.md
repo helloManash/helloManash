@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I want to organize so that women see ourselves as people who are entitled to power, entitled to leadership.</h3 quote>
+<h3 quote align='center'>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house.</h3 quote>
 
 ---
 
