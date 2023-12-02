@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I think it is important to ask ourselves as citizens, not as Democrats attacking the administration, but as citizens, whether a world power can really provide global leadership on the basis of fear and anxiety?.</h3 quote>
+<h3 quote align='center'>I want to organize so that women see ourselves as people who are entitled to power, entitled to leadership.</h3 quote>
 
 ---
 
