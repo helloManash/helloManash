@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I came on to the film with a very happy-go-lucky attitude which I think my character, Charlie, did when she went into the house.</h3 quote>
+<h3 quote align='center'>There is a single thread of attitude, a single direction of flow, that joins our present time to its early burgeoning in Mediterranean civilization.</h3 quote>
 
 ---
 
