@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What I wish I had, is that I wish I was a little more Greek, in that I wish I could lose my North American driven attitude and that I could be a little bit more poetic and laissez faire.</h3 quote>
+<h3 quote align='center'>No one may speak for the dead, no one may interpret their mutilated dreams and visions.</h3 quote>
 
 ---
 
