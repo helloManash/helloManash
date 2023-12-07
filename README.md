@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success to me is having ten honeydew melons and only eating the top half of each one.</h3 quote>
+<h3 quote align='center'>I think leadership is service and there is power in that giving: to help people, to inspire and motivate them to reach their fullest potential.</h3 quote>
 
 ---
 
