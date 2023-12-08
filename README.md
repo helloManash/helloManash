@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>They say military have the so-called 'secret intelligence' - this amount of intelligence must be very secret, since I've never seen any intelligent military person, nor I have seen any sense in the bloody stupid wars.</h3 quote>
+<h3 quote align='center'>Effective leadership is putting first things first.</h3 quote>
 
 ---
 
