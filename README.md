@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Effective leadership is putting first things first.</h3 quote>
+<h3 quote align='center'>That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time.</h3 quote>
 
 ---
 
