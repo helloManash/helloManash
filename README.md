@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time.</h3 quote>
+<h3 quote align='center'>Because management deals mostly with the status quo and leadership deals mostly with change, in the next century we are going to have to try to become much more skilled at creating leaders.</h3 quote>
 
 ---
 
