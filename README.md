@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If your actions inspire others to dream more, learn more, do more and become more, you are a leader.</h3 quote>
+<h3 quote align='center'>The very exercise of leadership fosters capacity for it.</h3 quote>
 
 ---
 
