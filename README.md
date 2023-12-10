@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The very exercise of leadership fosters capacity for it.</h3 quote>
+<h3 quote align='center'>I'll let you be in my dreams if I can be in yours.</h3 quote>
 
 ---
 
