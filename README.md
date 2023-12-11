@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'll let you be in my dreams if I can be in yours.</h3 quote>
+<h3 quote align='center'>I'd like to believe an accumulation of experience has made me a sort of a grown-up person, so I can have judgment and taste and whatever.</h3 quote>
 
 ---
 
