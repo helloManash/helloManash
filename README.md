@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</h3 quote>
+<h3 quote align='center'>There is nothing stronger in the world than gentleness.</h3 quote>
 
 ---
 
