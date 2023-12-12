@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There is nothing stronger in the world than gentleness.</h3 quote>
+<h3 quote align='center'>It's sort of a mental attitude about critical thinking and curiosity.</h3 quote>
 
 ---
 
