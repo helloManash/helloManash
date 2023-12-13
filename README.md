@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I mean, we've all had those dreams where, you know, we try to cry out and our voice won't come.</h3 quote>
+<h3 quote align='center'>Experience demands that man is the only animal which devours his own kind, for I can apply no milder term to the general prey of the rich on the poor.</h3 quote>
 
 ---
 
