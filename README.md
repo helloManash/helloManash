@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's sort of a mental attitude about critical thinking and curiosity.</h3 quote>
+<h3 quote align='center'>I mean, we've all had those dreams where, you know, we try to cry out and our voice won't come.</h3 quote>
 
 ---
 
