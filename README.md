@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My attitude on skis is different now.</h3 quote>
+<h3 quote align='center'>Flying dreams mean that you're doing the right thing with your life.</h3 quote>
 
 ---
 
