@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience demands that man is the only animal which devours his own kind, for I can apply no milder term to the general prey of the rich on the poor.</h3 quote>
+<h3 quote align='center'>My attitude on skis is different now.</h3 quote>
 
 ---
 
