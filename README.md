@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</h3 quote>
+<h3 quote align='center'>Ambition is a lust that is never quenched, but grows more inflamed and madder by enjoyment.</h3 quote>
 
 ---
 
