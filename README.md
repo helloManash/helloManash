@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Flying dreams mean that you're doing the right thing with your life.</h3 quote>
+<h3 quote align='center'>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</h3 quote>
 
 ---
 
