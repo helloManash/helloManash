@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ambition is a lust that is never quenched, but grows more inflamed and madder by enjoyment.</h3 quote>
+<h3 quote align='center'>And I tell you, having girls has made me a much better man.</h3 quote>
 
 ---
 
