@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And I tell you, having girls has made me a much better man.</h3 quote>
+<h3 quote align='center'>Solidarity is an attitude of resistance, I suppose, or it should be.</h3 quote>
 
 ---
 
