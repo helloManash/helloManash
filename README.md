@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
+<h3 quote align='center'>Man errs as long as he strives.</h3 quote>
 
 ---
 
