@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Solidarity is an attitude of resistance, I suppose, or it should be.</h3 quote>
+<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
 
 ---
 
