@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Man errs as long as he strives.</h3 quote>
+<h3 quote align='center'>Dreams are real as long as they last.</h3 quote>
 
 ---
 
