@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Yesterday is but today's memory, and tomorrow is today's dream.</h3 quote>
+<h3 quote align='center'>Although our inattention can contribute to our lack of total well-being, we also have the power to choose positive behaviors and responses.</h3 quote>
 
 ---
 
