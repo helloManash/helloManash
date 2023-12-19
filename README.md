@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our citizens and those who have gone before us charted the broad outlines of where we need to go, and they would envy our opportunity to translate those dreams into action.</h3 quote>
+<h3 quote align='center'>Yesterday is but today's memory, and tomorrow is today's dream.</h3 quote>
 
 ---
 
