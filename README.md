@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Although our inattention can contribute to our lack of total well-being, we also have the power to choose positive behaviors and responses.</h3 quote>
+<h3 quote align='center'>Britishness is just a way of putting things together and a certain don't care attitude about clothes.</h3 quote>
 
 ---
 
