@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Britishness is just a way of putting things together and a certain don't care attitude about clothes.</h3 quote>
+<h3 quote align='center'>Pink isn't just a color, it's an attitude!.</h3 quote>
 
 ---
 
