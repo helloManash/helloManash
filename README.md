@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There is nothing more difficult to carry out and more doubtful of success than to initiate a new order of things.</h3 quote>
+<h3 quote align='center'>I don't have dreams.</h3 quote>
 
 ---
 
