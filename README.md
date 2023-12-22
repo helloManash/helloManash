@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't have dreams.</h3 quote>
+<h3 quote align='center'>You know what's funny to me? Attitude.</h3 quote>
 
 ---
 
