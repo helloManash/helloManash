@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You know what's funny to me? Attitude.</h3 quote>
+<h3 quote align='center'>Women love working together.</h3 quote>
 
 ---
 
