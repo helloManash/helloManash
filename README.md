@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Here you do have forests, where pigs could be raised by letting them root about in the forests for a good part of the year.</h3 quote>
+<h3 quote align='center'>He who never fell never climbed.</h3 quote>
 
 ---
 
