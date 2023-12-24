@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>He who never fell never climbed.</h3 quote>
+<h3 quote align='center'>If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.</h3 quote>
 
 ---
 
