@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.</h3 quote>
+<h3 quote align='center'>There are worlds of experience beyond the world of the aggressive man, beyond history, and beyond science.</h3 quote>
 
 ---
 
