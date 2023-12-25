@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The books that help you most are those which make you think that most.</h3 quote>
+<h3 quote align='center'>This is one of the major problems we have.</h3 quote>
 
 ---
 
