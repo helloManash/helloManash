@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are worlds of experience beyond the world of the aggressive man, beyond history, and beyond science.</h3 quote>
+<h3 quote align='center'>The books that help you most are those which make you think that most.</h3 quote>
 
 ---
 
