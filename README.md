@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>This is one of the major problems we have.</h3 quote>
+<h3 quote align='center'>Grace is the beauty of form under the influence of freedom.</h3 quote>
 
 ---
 
