@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Grace is the beauty of form under the influence of freedom.</h3 quote>
+<h3 quote align='center'>Human folk are as a matter of fact eager to find intelligence in animals.</h3 quote>
 
 ---
 
