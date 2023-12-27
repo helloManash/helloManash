@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Human folk are as a matter of fact eager to find intelligence in animals.</h3 quote>
+<h3 quote align='center'>Working with HBO was an opportunity to experience creative freedom and 'long-form development' that filmmakers didn't have a chance to do before the emergence of shows like 'The Sopranos.</h3 quote>
 
 ---
 
