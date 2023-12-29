@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
+<h3 quote align='center'>On the other hand, the waging of peace as a science, as an art, is in its infancy.</h3 quote>
 
 ---
 
