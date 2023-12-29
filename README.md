@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>They have involved co-operation between the Iraqi intelligence and al-Qaeda operatives on training and combined operations regarding bomb making and chemical and biological weapons.</h3 quote>
+<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
 
 ---
 
