@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is impossible to exaggerate the wide, and widening, gulf between the American attitude on the Iraq war and the view from our friends across the Atlantic.</h3 quote>
+<h3 quote align='center'>I just kind of wake up with a new idea and new dreams every day, and I follow that dream, as they say.</h3 quote>
 
 ---
 
