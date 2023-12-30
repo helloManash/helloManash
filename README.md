@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>On the other hand, the waging of peace as a science, as an art, is in its infancy.</h3 quote>
+<h3 quote align='center'>It is impossible to exaggerate the wide, and widening, gulf between the American attitude on the Iraq war and the view from our friends across the Atlantic.</h3 quote>
 
 ---
 
