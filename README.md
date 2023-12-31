@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I just kind of wake up with a new idea and new dreams every day, and I follow that dream, as they say.</h3 quote>
+<h3 quote align='center'>When you cease to dream you cease to live.</h3 quote>
 
 ---
 
