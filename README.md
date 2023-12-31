@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>When you cease to dream you cease to live.</h3 quote>
+<h3 quote align='center'>For a gallant spirit there can never be defeat.</h3 quote>
 
 ---
 
