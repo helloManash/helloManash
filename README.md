@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Rude contact with facts chased my visions and dreams quickly away, and in their stead I beheld the horrors, the corruption, the evils and hypocrisy of society, and as I stood among them, a young wife, a great wail of agony went out from my soul.</h3 quote>
+<h3 quote align='center'>Dreams can be like charades in which we act out words rather than see or speak them.</h3 quote>
 
 ---
 
