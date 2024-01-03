@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dreams can be like charades in which we act out words rather than see or speak them.</h3 quote>
+<h3 quote align='center'>We're going to need to absorb some pain.</h3 quote>
 
 ---
 
