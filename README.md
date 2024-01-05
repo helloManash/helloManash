@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Something happens to us all when we experience something as a unit that doesn't occur when we're on our couches or holding our little portable DVD players.</h3 quote>
+<h3 quote align='center'>Our science fails to recognize those special properties of life that make it fundamental to material reality.</h3 quote>
 
 ---
 
