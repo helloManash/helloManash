@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We in the industry know that behind every successful screenwriter stands a woman.</h3 quote>
+<h3 quote align='center'>Something happens to us all when we experience something as a unit that doesn't occur when we're on our couches or holding our little portable DVD players.</h3 quote>
 
 ---
 
