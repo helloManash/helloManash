@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Acting can be a narrow and isolated experience, because you only examine your particular part.</h3 quote>
+<h3 quote align='center'>The wise are instructed by reason, average minds by experience, the stupid by necessity and the brute by instinct.</h3 quote>
 
 ---
 
