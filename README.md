@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our science fails to recognize those special properties of life that make it fundamental to material reality.</h3 quote>
+<h3 quote align='center'>Acting can be a narrow and isolated experience, because you only examine your particular part.</h3 quote>
 
 ---
 
