@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The wise are instructed by reason, average minds by experience, the stupid by necessity and the brute by instinct.</h3 quote>
+<h3 quote align='center'>Writing a story or a novel is one way of discovering sequence in experience, of stumbling upon cause and effect in the happenings of a writer's own life.</h3 quote>
 
 ---
 
