@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Writing a story or a novel is one way of discovering sequence in experience, of stumbling upon cause and effect in the happenings of a writer's own life.</h3 quote>
+<h3 quote align='center'>There are a lot of things that are personally uncomfortable to show, especially me without makeup and completely bloated or crying.</h3 quote>
 
 ---
 
