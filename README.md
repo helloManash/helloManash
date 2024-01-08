@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Be faithful to that which exists within yourself.</h3 quote>
+<h3 quote align='center'>The object of pure physics is the unfolding of the laws of the intelligible world the object of pure mathematics that of unfolding the laws of human intelligence.</h3 quote>
 
 ---
 
