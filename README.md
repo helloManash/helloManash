@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dreams do come true.</h3 quote>
+<h3 quote align='center'>Leadership appears to be the art of getting others to want to do something you are convinced should be done.</h3 quote>
 
 ---
 
