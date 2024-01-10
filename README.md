@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership appears to be the art of getting others to want to do something you are convinced should be done.</h3 quote>
+<h3 quote align='center'>The single most important thing in a child's performance is the quality of the teacher.</h3 quote>
 
 ---
 
