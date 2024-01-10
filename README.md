@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The single most important thing in a child's performance is the quality of the teacher.</h3 quote>
+<h3 quote align='center'>Democrats are going to proudly run on the fact that we turned the economy around.</h3 quote>
 
 ---
 
