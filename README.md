@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Democrats are going to proudly run on the fact that we turned the economy around.</h3 quote>
+<h3 quote align='center'>What really matters is the name you succeed in imposing on the facts not the facts themselves.</h3 quote>
 
 ---
 
