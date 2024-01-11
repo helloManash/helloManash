@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What really matters is the name you succeed in imposing on the facts not the facts themselves.</h3 quote>
+<h3 quote align='center'>If you look at the publishers I've worked with, generally, they're a great bunch.</h3 quote>
 
 ---
 
