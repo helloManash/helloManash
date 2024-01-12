@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you look at the publishers I've worked with, generally, they're a great bunch.</h3 quote>
+<h3 quote align='center'>There is much to be said for failure.</h3 quote>
 
 ---
 
