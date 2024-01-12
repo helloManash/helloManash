@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There is much to be said for failure.</h3 quote>
+<h3 quote align='center'>I went to the Performing Arts School and studied classical ballet.</h3 quote>
 
 ---
 
