@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I went to the Performing Arts School and studied classical ballet.</h3 quote>
+<h3 quote align='center'>We must believe in luck for how else can we explain the success of those we don't like?.</h3 quote>
 
 ---
 
