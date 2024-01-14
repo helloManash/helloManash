@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Human beings exercise responsibilities within a social setting and a framework of obligations which transcend the principle of intelligence.</h3 quote>
+<h3 quote align='center'>I guess my experience with some stuff is kind of abstract.</h3 quote>
 
 ---
 
