@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I guess my experience with some stuff is kind of abstract.</h3 quote>
+<h3 quote align='center'>Intelligence is quickness to apprehend as distinct form ability, which is capacity to act wisely on the thing apprehended.</h3 quote>
 
 ---
 
