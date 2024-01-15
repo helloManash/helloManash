@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Intelligence is quickness to apprehend as distinct form ability, which is capacity to act wisely on the thing apprehended.</h3 quote>
+<h3 quote align='center'>Moderation is a fatal thing nothing succeeds like excess.</h3 quote>
 
 ---
 
