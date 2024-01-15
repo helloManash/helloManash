@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Moderation is a fatal thing nothing succeeds like excess.</h3 quote>
+<h3 quote align='center'>Faith is love taking the form of aspiration.</h3 quote>
 
 ---
 
