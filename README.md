@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I mean, Emily Harris was his wife.</h3 quote>
+<h3 quote align='center'>At a time when we are facing threats from nations such as North Korea and Iran, and attempting to convince others such as India and Pakistan to become responsible nuclear powers, it is vital that America reclaims the leadership we once had on arms control.</h3 quote>
 
 ---
 
