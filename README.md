@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Faith is love taking the form of aspiration.</h3 quote>
+<h3 quote align='center'>I mean, Emily Harris was his wife.</h3 quote>
 
 ---
 
