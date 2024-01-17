@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are three ways a man can be ruined: women,gambling, and farming.</h3 quote>
+<h3 quote align='center'>But I am delighted to be a Dodger, I grew up a Dodger fan and now my dreams have really come true.</h3 quote>
 
 ---
 
