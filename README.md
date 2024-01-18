@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Yet it is in our idleness, in our dreams, that the submerged truth sometimes comes to the top.</h3 quote>
+<h3 quote align='center'>No bird soars too high if he soars with his own wings.</h3 quote>
 
 ---
 
