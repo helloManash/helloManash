@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>But I am delighted to be a Dodger, I grew up a Dodger fan and now my dreams have really come true.</h3 quote>
+<h3 quote align='center'>Yet it is in our idleness, in our dreams, that the submerged truth sometimes comes to the top.</h3 quote>
 
 ---
 
