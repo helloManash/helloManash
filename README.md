@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You know, Willie Wonka said it best: we are the makers of dreams, the dreamers of dreams.</h3 quote>
+<h3 quote align='center'>I just really think every job I do, I get this gypsy attitude to money.</h3 quote>
 
 ---
 
