@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>No bird soars too high if he soars with his own wings.</h3 quote>
+<h3 quote align='center'>You know, Willie Wonka said it best: we are the makers of dreams, the dreamers of dreams.</h3 quote>
 
 ---
 
