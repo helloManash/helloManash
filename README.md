@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I just really think every job I do, I get this gypsy attitude to money.</h3 quote>
+<h3 quote align='center'>Loneliness is and always has been the central and inevitable experience of every man.</h3 quote>
 
 ---
 
