@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Loneliness is and always has been the central and inevitable experience of every man.</h3 quote>
+<h3 quote align='center'>We awaken in others the same attitude of mind we hold toward them.</h3 quote>
 
 ---
 
