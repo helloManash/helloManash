@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
+<h3 quote align='center'>If a person gets his attitude toward money straight, it will help straighten out almost every other area in his life.</h3 quote>
 
 ---
 
