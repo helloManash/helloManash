@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We awaken in others the same attitude of mind we hold toward them.</h3 quote>
+<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
 
 ---
 
