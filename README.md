@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Your attitude, not your aptitude, will determine your altitude.</h3 quote>
+<h3 quote align='center'>Being in love is the only transcendent experience.</h3 quote>
 
 ---
 
