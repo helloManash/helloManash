@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is by acts and not by ideas that people live.</h3 quote>
+<h3 quote align='center'>Success is to be measured not so much by the position that one has reached in life as by the obstacles which he has overcome.</h3 quote>
 
 ---
 
