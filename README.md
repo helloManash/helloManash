@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Being in love is the only transcendent experience.</h3 quote>
+<h3 quote align='center'>It is by acts and not by ideas that people live.</h3 quote>
 
 ---
 
