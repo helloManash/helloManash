@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is to be measured not so much by the position that one has reached in life as by the obstacles which he has overcome.</h3 quote>
+<h3 quote align='center'>My dreams and aspirations when I was a child for as long as I can remember was to be an entertainer.</h3 quote>
 
 ---
 
