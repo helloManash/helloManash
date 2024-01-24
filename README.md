@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My dreams and aspirations when I was a child for as long as I can remember was to be an entertainer.</h3 quote>
+<h3 quote align='center'>I've succeeded beyond my wildest dreams - financially and the amount of fun I have in my life.</h3 quote>
 
 ---
 
