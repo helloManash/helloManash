@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I've succeeded beyond my wildest dreams - financially and the amount of fun I have in my life.</h3 quote>
+<h3 quote align='center'>The accidental causes of science are only accidents relatively to the intelligence of a man.</h3 quote>
 
 ---
 
