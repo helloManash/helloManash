@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Oprah is so bright, and her intelligence is so piercing that I don't think anyone who spends a few minutes with her isn't struck by that.</h3 quote>
+<h3 quote align='center'>Success has always been a great liar.</h3 quote>
 
 ---
 
