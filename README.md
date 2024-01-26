@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I have looked into your eyes with my eyes.</h3 quote>
+<h3 quote align='center'>Oprah is so bright, and her intelligence is so piercing that I don't think anyone who spends a few minutes with her isn't struck by that.</h3 quote>
 
 ---
 
