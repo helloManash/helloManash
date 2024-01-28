@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Magicians lose the opportunity to experience a sense of wonder.</h3 quote>
+<h3 quote align='center'>The human heart has hidden treasures, In secret kept, in silence sealed The thoughts, the hopes, the dreams, the pleasures, Whose charms were broken if revealed.</h3 quote>
 
 ---
 
