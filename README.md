@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The human heart has hidden treasures, In secret kept, in silence sealed The thoughts, the hopes, the dreams, the pleasures, Whose charms were broken if revealed.</h3 quote>
+<h3 quote align='center'>Some folks can look so busy doing nothin' that they seem indispensable.</h3 quote>
 
 ---
 
