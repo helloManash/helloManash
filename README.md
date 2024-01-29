@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Some folks can look so busy doing nothin' that they seem indispensable.</h3 quote>
+<h3 quote align='center'>If you wish to be a success in the world, promise everything, deliver nothing.</h3 quote>
 
 ---
 
