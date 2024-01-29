@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you wish to be a success in the world, promise everything, deliver nothing.</h3 quote>
+<h3 quote align='center'>You have to see a building to comprehend it.</h3 quote>
 
 ---
 
