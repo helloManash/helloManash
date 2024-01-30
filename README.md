@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Gratitude is the fairest blossom which springs from the soul.</h3 quote>
+<h3 quote align='center'>The difference between failure and success is doing a thing nearly right and doing a thing exactly right.</h3 quote>
 
 ---
 
