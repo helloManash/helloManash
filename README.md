@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You have to see a building to comprehend it.</h3 quote>
+<h3 quote align='center'>Gratitude is the fairest blossom which springs from the soul.</h3 quote>
 
 ---
 
