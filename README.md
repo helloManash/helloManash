@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What we achieve inwardly will change outer reality.</h3 quote>
+<h3 quote align='center'>Hardboiled crime fiction came of age in 'Black Mask' magazine during the Twenties and Thirties.</h3 quote>
 
 ---
 
