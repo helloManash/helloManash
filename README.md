@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It has always been my private conviction that any man who puts his intelligence up against a fish and loses had it coming.</h3 quote>
+<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
 
 ---
 
