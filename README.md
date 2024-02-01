@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Hardboiled crime fiction came of age in 'Black Mask' magazine during the Twenties and Thirties.</h3 quote>
+<h3 quote align='center'>It has always been my private conviction that any man who puts his intelligence up against a fish and loses had it coming.</h3 quote>
 
 ---
 
