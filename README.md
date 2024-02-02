@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Football is my profession now.</h3 quote>
+<h3 quote align='center'>I believe that imagination is stronger than knowledge.</h3 quote>
 
 ---
 
