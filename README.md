@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
+<h3 quote align='center'>Football is my profession now.</h3 quote>
 
 ---
 
