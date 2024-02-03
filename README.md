@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>They should invent some way to tape-record your dreams.</h3 quote>
+<h3 quote align='center'>Nixon was an awful president in many ways, including in some of his foreign-policy choices.</h3 quote>
 
 ---
 
