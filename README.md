@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Hope is some extraordinary spiritual grace that God gives us to control our fears, not to oust them.</h3 quote>
+<h3 quote align='center'>Leadership is diving for a loose ball, getting the crowd involved, getting other players involved.</h3 quote>
 
 ---
 
