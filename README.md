@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nixon was an awful president in many ways, including in some of his foreign-policy choices.</h3 quote>
+<h3 quote align='center'>Hope is some extraordinary spiritual grace that God gives us to control our fears, not to oust them.</h3 quote>
 
 ---
 
