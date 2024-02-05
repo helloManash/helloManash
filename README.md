@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I was bringing my attitude as a regular person 'cause this is my attitude.</h3 quote>
+<h3 quote align='center'>To understand a difficult topic like Iraq takes patience and care.</h3 quote>
 
 ---
 
