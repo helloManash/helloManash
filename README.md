@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership is diving for a loose ball, getting the crowd involved, getting other players involved.</h3 quote>
+<h3 quote align='center'>I was bringing my attitude as a regular person 'cause this is my attitude.</h3 quote>
 
 ---
 
