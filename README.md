@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>To understand a difficult topic like Iraq takes patience and care.</h3 quote>
+<h3 quote align='center'>The National Intelligence Director needs the authority to do the job we are asking him to do.</h3 quote>
 
 ---
 
