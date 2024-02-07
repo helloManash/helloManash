@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>To use the same words is not a sufficient guarantee of understanding one must use the same words for the same genus of inward experience ultimately one must have one's experiences in common.</h3 quote>
+<h3 quote align='center'>I believe that it is irresponsible, it is basically part of the crisis of leadership in D.</h3 quote>
 
 ---
 
