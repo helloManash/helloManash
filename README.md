@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Any film, or to me any creative endeavour, no matter who you're working with, is, in many cases, a wonderful experience.</h3 quote>
+<h3 quote align='center'>Yesterday we obeyed kings and bent our necks before emperors.</h3 quote>
 
 ---
 
