@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Anybody who has gone through a life-changing experience will tell you there is a different understanding of what is real and what is important, and when you are going through different moments, you can reflect and go, 'I have been through worse.</h3 quote>
+<h3 quote align='center'>Any film, or to me any creative endeavour, no matter who you're working with, is, in many cases, a wonderful experience.</h3 quote>
 
 ---
 
