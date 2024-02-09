@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Yesterday we obeyed kings and bent our necks before emperors.</h3 quote>
+<h3 quote align='center'>To be a successful father there's one absolute rule: when you have a kid, don't look at it for the first two years.</h3 quote>
 
 ---
 
