@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>To be a successful father there's one absolute rule: when you have a kid, don't look at it for the first two years.</h3 quote>
+<h3 quote align='center'>The real hero is always a hero by mistake he dreams of being an honest coward like everybody else.</h3 quote>
 
 ---
 
