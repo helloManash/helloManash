@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The real hero is always a hero by mistake he dreams of being an honest coward like everybody else.</h3 quote>
+<h3 quote align='center'>They say military have the so-called 'secret intelligence' - this amount of intelligence must be very secret, since I've never seen any intelligent military person, nor I have seen any sense in the bloody stupid wars.</h3 quote>
 
 ---
 
