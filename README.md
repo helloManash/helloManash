@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nothing.</h3 quote>
+<h3 quote align='center'>If it were not for hopes, the heart would break.</h3 quote>
 
 ---
 
