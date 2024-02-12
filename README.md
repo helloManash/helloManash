@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If it were not for hopes, the heart would break.</h3 quote>
+<h3 quote align='center'>In aid, the proper attitude is one omitting gratitude.</h3 quote>
 
 ---
 
