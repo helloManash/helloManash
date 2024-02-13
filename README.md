@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If we are to negotiate the coming years safely, we may need a new kind of leadership.</h3 quote>
+<h3 quote align='center'>I can't change the direction of the wind, but I can adjust my sails to always reach my destination.</h3 quote>
 
 ---
 
