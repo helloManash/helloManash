@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Do What You Gotta Do' is a positive, inspirational song that says no matter what it is whether you're up against challenges or trying to get your dreams and aspirations met, you should do what whatever you have to do shy of killing yourself or someone else.</h3 quote>
+<h3 quote align='center'>Our fathers had their dreams we have ours the generation that follows will have its own.</h3 quote>
 
 ---
 
