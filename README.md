@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I can't change the direction of the wind, but I can adjust my sails to always reach my destination.</h3 quote>
+<h3 quote align='center'>Do What You Gotta Do' is a positive, inspirational song that says no matter what it is whether you're up against challenges or trying to get your dreams and aspirations met, you should do what whatever you have to do shy of killing yourself or someone else.</h3 quote>
 
 ---
 
