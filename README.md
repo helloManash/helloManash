@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our fathers had their dreams we have ours the generation that follows will have its own.</h3 quote>
+<h3 quote align='center'>But it has, in addition, an even more precious quality - a consciousness of the human intelligence, the human spirit and that man is a social creature.</h3 quote>
 
 ---
 
