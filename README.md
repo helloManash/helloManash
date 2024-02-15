@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>But it has, in addition, an even more precious quality - a consciousness of the human intelligence, the human spirit and that man is a social creature.</h3 quote>
+<h3 quote align='center'>You know what's funny to me? Attitude.</h3 quote>
 
 ---
 
