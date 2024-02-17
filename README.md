@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We should be careful to get out of an experience only the wisdom that is in it?and stop there; lest we be like the cat that sits down on a hot stove-lid.</h3 quote>
+<h3 quote align='center'>Rehearsals and this band are two words that don't really go together, kinda like Military Intelligence.</h3 quote>
 
 ---
 
