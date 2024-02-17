@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Rehearsals and this band are two words that don't really go together, kinda like Military Intelligence.</h3 quote>
+<h3 quote align='center'>Enthusiasm moves the world.</h3 quote>
 
 ---
 
