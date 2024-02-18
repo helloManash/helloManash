@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Enthusiasm moves the world.</h3 quote>
+<h3 quote align='center'>Success is relevant to coping with obstacles.</h3 quote>
 
 ---
 
