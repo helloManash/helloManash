@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is relevant to coping with obstacles.</h3 quote>
+<h3 quote align='center'>My feelings about my mortality are less selfish than they used to be.</h3 quote>
 
 ---
 
