@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Knowledge comes, but wisdom lingers.</h3 quote>
+<h3 quote align='center'>Who looks outside, dreams who looks inside, awakes.</h3 quote>
 
 ---
 
