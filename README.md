@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>God sleeps in the minerals, awakens in plants, walks in animals, and thinks in man.</h3 quote>
+<h3 quote align='center'>That disturbs people when they know they didn't have the guts or integrity to stick to their dreams.</h3 quote>
 
 ---
 
