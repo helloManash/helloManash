@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Anyone who has lost track of time when using a computer knows the propensity to dream, the urge to make dreams come true and the tendency to miss lunch.</h3 quote>
+<h3 quote align='center'>God sleeps in the minerals, awakens in plants, walks in animals, and thinks in man.</h3 quote>
 
 ---
 
