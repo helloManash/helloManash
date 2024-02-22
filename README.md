@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>That disturbs people when they know they didn't have the guts or integrity to stick to their dreams.</h3 quote>
+<h3 quote align='center'>Plant thy foot firmly in the prints which His foot has made before thee.</h3 quote>
 
 ---
 
