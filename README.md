@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Plant thy foot firmly in the prints which His foot has made before thee.</h3 quote>
+<h3 quote align='center'>Most good actors have a huge intelligence about the human condition and a real open heart to different kinds of people and behavior.</h3 quote>
 
 ---
 
