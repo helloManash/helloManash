@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Most good actors have a huge intelligence about the human condition and a real open heart to different kinds of people and behavior.</h3 quote>
+<h3 quote align='center'>There are glimpses of heaven to us in every act, or thought, or word, that raises us above ourselves.</h3 quote>
 
 ---
 
