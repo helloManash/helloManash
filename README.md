@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are glimpses of heaven to us in every act, or thought, or word, that raises us above ourselves.</h3 quote>
+<h3 quote align='center'>And so you touch this limit, something happens and you suddenly can go a little bit further.</h3 quote>
 
 ---
 
