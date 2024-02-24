@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And so you touch this limit, something happens and you suddenly can go a little bit further.</h3 quote>
+<h3 quote align='center'>Stability is more essential to success than brilliance.</h3 quote>
 
 ---
 
