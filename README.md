@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Tears of joy are like the summer rain drops pierced by sunbeams.</h3 quote>
+<h3 quote align='center'>Education is when you read the fine print.</h3 quote>
 
 ---
 
