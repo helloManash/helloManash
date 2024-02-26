@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>With self-discipline most anything is possible.</h3 quote>
+<h3 quote align='center'>I was so emotional.</h3 quote>
 
 ---
 
