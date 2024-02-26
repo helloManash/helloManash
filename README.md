@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I was so emotional.</h3 quote>
+<h3 quote align='center'>The assumption is that the right kind of society is an organic being not merely analogous to an organic being, but actually a living structure with appetites and digestions, instincts and passions, intelligence and reason.</h3 quote>
 
 ---
 
