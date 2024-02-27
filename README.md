@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Have you ever wondered why young people take to music like fish to water? Maybe it's because music is fun.</h3 quote>
+<h3 quote align='center'>It has always amazed me how tax cuts don't work until they take effect.</h3 quote>
 
 ---
 
