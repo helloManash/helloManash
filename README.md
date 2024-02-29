@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>All human beings are also dream beings.</h3 quote>
+<h3 quote align='center'>You can plant a dream.</h3 quote>
 
 ---
 
