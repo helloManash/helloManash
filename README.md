@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I think it is quite dangerous for an organisation to think they can predict where they are going to need leadership.</h3 quote>
+<h3 quote align='center'>All human beings are also dream beings.</h3 quote>
 
 ---
 
