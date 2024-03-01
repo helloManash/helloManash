@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is not a harbor but a voyage with its own perils to the spirit.</h3 quote>
+<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
 
 ---
 
