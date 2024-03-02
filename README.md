@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
+<h3 quote align='center'>At an incredibly divisive point in pop history, Donna Summer managed to create an undeniable across-the-board experience of mass pleasure - after 'Bad Girls,' nobody ever tried claiming disco sucked again.</h3 quote>
 
 ---
 
