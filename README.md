@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Elia Kazan understood my problems.</h3 quote>
+<h3 quote align='center'>My mother, she had a very good attitude toward money.</h3 quote>
 
 ---
 
