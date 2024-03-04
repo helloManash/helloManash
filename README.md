@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The biggest challenge is how to affect public attitudes and make people care.</h3 quote>
+<h3 quote align='center'>If you are going to achieve excellence in big things, you develop the habit in little matters.</h3 quote>
 
 ---
 
