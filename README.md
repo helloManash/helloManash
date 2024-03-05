@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men do weird things when they experience fear.</h3 quote>
+<h3 quote align='center'>Dreams must be heeded and accepted.</h3 quote>
 
 ---
 
