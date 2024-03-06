@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Your living is determined not so much by what life brings to you as by the attitude you bring to life not so much by what happens to you as by the way your mind looks at what happens.</h3 quote>
+<h3 quote align='center'>In view of the fact that God limited the intelligence of man, it seems unfair that He did not also limit his stupidity.</h3 quote>
 
 ---
 
