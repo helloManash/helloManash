@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In view of the fact that God limited the intelligence of man, it seems unfair that He did not also limit his stupidity.</h3 quote>
+<h3 quote align='center'>I just think that people take me a little more seriously as a brunette.</h3 quote>
 
 ---
 
