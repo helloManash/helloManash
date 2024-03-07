@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I just think that people take me a little more seriously as a brunette.</h3 quote>
+<h3 quote align='center'>If you wish to be a success in the world, promise everything, deliver nothing.</h3 quote>
 
 ---
 
