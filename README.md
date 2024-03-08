@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We will see that our new attitude toward liquor has been given to us without any thought or effort on our part.</h3 quote>
+<h3 quote align='center'>He that climbs the tall tree has won right to the fruit, He that leaps the wide gulf should prevail in his suit.</h3 quote>
 
 ---
 
