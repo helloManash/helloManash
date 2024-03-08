@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
+<h3 quote align='center'>We will see that our new attitude toward liquor has been given to us without any thought or effort on our part.</h3 quote>
 
 ---
 
