@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I appreciate everything that has been done for me.</h3 quote>
+<h3 quote align='center'>We can change our lives.</h3 quote>
 
 ---
 
