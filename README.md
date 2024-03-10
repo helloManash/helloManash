@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You cannot transpose the U.</h3 quote>
+<h3 quote align='center'>To believe in one's dreams is to spend all of one's life asleep.</h3 quote>
 
 ---
 
