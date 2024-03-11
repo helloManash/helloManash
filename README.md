@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>To believe in one's dreams is to spend all of one's life asleep.</h3 quote>
+<h3 quote align='center'>I have never been afraid to stand up to the leadership on issues where we disagree.</h3 quote>
 
 ---
 
