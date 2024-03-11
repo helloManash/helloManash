@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I have never been afraid to stand up to the leadership on issues where we disagree.</h3 quote>
+<h3 quote align='center'>Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.</h3 quote>
 
 ---
 
