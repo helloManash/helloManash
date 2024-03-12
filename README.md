@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.</h3 quote>
+<h3 quote align='center'>There is much to be said for failure.</h3 quote>
 
 ---
 
