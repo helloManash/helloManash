@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I do not know whether I was then a man dreaming I was a butterfly, or whether I am now a butterfly dreaming I am a man.</h3 quote>
+<h3 quote align='center'>Dreams come true; without that possibility, nature would not incite us to have them.</h3 quote>
 
 ---
 
