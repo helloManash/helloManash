@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dreams come true; without that possibility, nature would not incite us to have them.</h3 quote>
+<h3 quote align='center'>The successful person is the individual who forms the habit of doing what the failing person doesn't like to do.</h3 quote>
 
 ---
 
