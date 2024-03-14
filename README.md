@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Education is the mother of leadership.</h3 quote>
+<h3 quote align='center'>I am very lucky because I am realizing my childhood dreams, and after presenting my shows it's like a party.</h3 quote>
 
 ---
 
