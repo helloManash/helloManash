@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The mob spirit has grown with the increasing intelligence of the Afro-American.</h3 quote>
+<h3 quote align='center'>Every actor dreams of getting a big break, a big opportunity.</h3 quote>
 
 ---
 
