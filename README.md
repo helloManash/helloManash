@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I am very lucky because I am realizing my childhood dreams, and after presenting my shows it's like a party.</h3 quote>
+<h3 quote align='center'>The mob spirit has grown with the increasing intelligence of the Afro-American.</h3 quote>
 
 ---
 
