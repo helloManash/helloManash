@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Every actor dreams of getting a big break, a big opportunity.</h3 quote>
+<h3 quote align='center'>I'm living out my dreams and I love what I do.</h3 quote>
 
 ---
 
