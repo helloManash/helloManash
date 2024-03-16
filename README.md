@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'm living out my dreams and I love what I do.</h3 quote>
+<h3 quote align='center'>I sought my father in the world of the black musician, because it contained wisdom, experience, sadness and loneliness.</h3 quote>
 
 ---
 
