@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Now, if we look at the way in which the labor movement itself has evolved over the last couple of decades, we see increasing numbers of black people who are in the leadership of the labor movement and this is true today.</h3 quote>
+<h3 quote align='center'>I will not get very far with this attitude.</h3 quote>
 
 ---
 
