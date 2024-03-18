@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Give me a firm place to stand, and I will move the earth.</h3 quote>
+<h3 quote align='center'>The role of leadership is to transform the complex situation into small pieces and prioritize them.</h3 quote>
 
 ---
 
