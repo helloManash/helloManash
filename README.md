@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I will not get very far with this attitude.</h3 quote>
+<h3 quote align='center'>Give me a firm place to stand, and I will move the earth.</h3 quote>
 
 ---
 
