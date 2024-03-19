@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The role of leadership is to transform the complex situation into small pieces and prioritize them.</h3 quote>
+<h3 quote align='center'>Politics is the only field in which the more experience you have, the worse you get.</h3 quote>
 
 ---
 
