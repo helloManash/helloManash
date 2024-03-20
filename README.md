@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's really interesting with art-movies too, but art especially - to see how your attitude toward artists and works and your level of appreciation of them is always shifting and changing over the years.</h3 quote>
+<h3 quote align='center'>You have no power at all if you do not exercise constant power.</h3 quote>
 
 ---
 
