@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>After having done this whole slew of press for 'Big Love,' now I'll have anxiety dreams for like a week and a half about all the stupid things I said.</h3 quote>
+<h3 quote align='center'>It's really interesting with art-movies too, but art especially - to see how your attitude toward artists and works and your level of appreciation of them is always shifting and changing over the years.</h3 quote>
 
 ---
 
