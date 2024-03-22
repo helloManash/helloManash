@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How do people relate to movies now, when they're on portable devices or streaming them? It's not as much about going to the movies.</h3 quote>
+<h3 quote align='center'>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</h3 quote>
 
 ---
 
