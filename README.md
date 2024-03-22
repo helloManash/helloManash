@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You have to have your heart in the business and the business in your heart.</h3 quote>
+<h3 quote align='center'>How do people relate to movies now, when they're on portable devices or streaming them? It's not as much about going to the movies.</h3 quote>
 
 ---
 
