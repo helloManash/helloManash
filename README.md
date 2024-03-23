@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I developed a nutty attitude where I'd think, If some guy really loves me he doesn't care if I'm fat.</h3 quote>
+<h3 quote align='center'>The secret of all victory lies in the organization of the non-obvious.</h3 quote>
 
 ---
 
