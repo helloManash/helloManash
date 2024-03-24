@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I now bid farewell to the country of my birth - of my passions - of my death a country whose misfortunes have invoked my sympathies - whose factions I sought to quell - whose intelligence I prompted to a lofty aim - whose freedom has been my fatal dream.</h3 quote>
+<h3 quote align='center'>The mob spirit has grown with the increasing intelligence of the Afro-American.</h3 quote>
 
 ---
 
