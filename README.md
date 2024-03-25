@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The mob spirit has grown with the increasing intelligence of the Afro-American.</h3 quote>
+<h3 quote align='center'>There are glimpses of heaven to us in every act, or thought, or word, that raises us above ourselves.</h3 quote>
 
 ---
 
