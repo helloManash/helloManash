@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are glimpses of heaven to us in every act, or thought, or word, that raises us above ourselves.</h3 quote>
+<h3 quote align='center'>Dreams can still come true you need a great deal of energy and determination, and a little bit of luck.</h3 quote>
 
 ---
 
