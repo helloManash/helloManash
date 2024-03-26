@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The time I spent thinking about how I was better than somebody else or worrying about somebody else's attitude was time I could put to better use.</h3 quote>
+<h3 quote align='center'>Success is relevant to coping with obstacles.</h3 quote>
 
 ---
 
