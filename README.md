@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Advertising: the science of arresting the human intelligence long enough to get money from it.</h3 quote>
+<h3 quote align='center'>My mother gave me my drive but my father gave me my dreams.</h3 quote>
 
 ---
 
