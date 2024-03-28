@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>At some time in the life cycle of virtually every organization, its ability to succeed in spite of itself runs out.</h3 quote>
+<h3 quote align='center'>We need the kind of leadership exemplified by President Kennedy to just do it! But we must do it as good stewards, aggressively exerting control over the moon.</h3 quote>
 
 ---
 
