@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My mother gave me my drive but my father gave me my dreams.</h3 quote>
+<h3 quote align='center'>At some time in the life cycle of virtually every organization, its ability to succeed in spite of itself runs out.</h3 quote>
 
 ---
 
