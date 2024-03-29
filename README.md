@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I mean, every child at one stage dreams of being a prince or a princess.</h3 quote>
+<h3 quote align='center'>The more that social democracy develops, grows, and becomes stronger, the more the enlightened masses of workers will take their own destinies, the leadership of their movement, and the determination of its direction into their own hands.</h3 quote>
 
 ---
 
