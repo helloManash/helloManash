@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The more that social democracy develops, grows, and becomes stronger, the more the enlightened masses of workers will take their own destinies, the leadership of their movement, and the determination of its direction into their own hands.</h3 quote>
+<h3 quote align='center'>France, after the month of May, will share trust with the current leadership of the United States which, on many subjects, has tended to take useful positions in our view.</h3 quote>
 
 ---
 
