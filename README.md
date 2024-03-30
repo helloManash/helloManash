@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>France, after the month of May, will share trust with the current leadership of the United States which, on many subjects, has tended to take useful positions in our view.</h3 quote>
+<h3 quote align='center'>You have all the reason in the world to achieve your grandest dreams.</h3 quote>
 
 ---
 
