@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men will never establish any equality with which they can be contented.</h3 quote>
+<h3 quote align='center'>Once you're in a particular country, and you're surrounded by musicians who are so adept at traditional music, you suddenly realize how much there is to explore and digest and learn and experience.</h3 quote>
 
 ---
 
