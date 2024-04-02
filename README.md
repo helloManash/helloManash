@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</h3 quote>
+<h3 quote align='center'>It would be incredibly presumptuous and self-serving of me to believe that Facebook was the end of history.</h3 quote>
 
 ---
 
