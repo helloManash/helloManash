@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Why be a man when you can be a success?.</h3 quote>
+<h3 quote align='center'>Talent and intelligence never yet inoculated anyone against the caprice of the fates.</h3 quote>
 
 ---
 
