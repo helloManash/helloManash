@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It would be incredibly presumptuous and self-serving of me to believe that Facebook was the end of history.</h3 quote>
+<h3 quote align='center'>Why be a man when you can be a success?.</h3 quote>
 
 ---
 
