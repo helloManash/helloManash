@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Every great dream begins with a dreamer.</h3 quote>
+<h3 quote align='center'>Vain hopes are like certain dreams of those who wake.</h3 quote>
 
 ---
 
