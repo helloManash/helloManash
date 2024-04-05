@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Someone's sitting in the shade today because someone planted a tree a long time ago.</h3 quote>
+<h3 quote align='center'>Men never cling to their dreams with such tenacity as at the moment when they are losing faith in them, and know it, but do not dare yet to confess it to themselves.</h3 quote>
 
 ---
 
