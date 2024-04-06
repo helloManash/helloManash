@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men never cling to their dreams with such tenacity as at the moment when they are losing faith in them, and know it, but do not dare yet to confess it to themselves.</h3 quote>
+<h3 quote align='center'>The time I spent thinking about how I was better than somebody else or worrying about somebody else's attitude was time I could put to better use.</h3 quote>
 
 ---
 
