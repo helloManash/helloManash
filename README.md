@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The power of imagination makes us infinite.</h3 quote>
+<h3 quote align='center'>Only those who have learned the power of sincere and selfless contribution experience life's deepest joy: true fulfillment.</h3 quote>
 
 ---
 
