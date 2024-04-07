@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Only those who have learned the power of sincere and selfless contribution experience life's deepest joy: true fulfillment.</h3 quote>
+<h3 quote align='center'>The fact is that a car used by Gerry Adams and myself during the course of the Mitchell review was bugged by elements within British military intelligence.</h3 quote>
 
 ---
 
