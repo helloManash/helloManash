@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The fact is that a car used by Gerry Adams and myself during the course of the Mitchell review was bugged by elements within British military intelligence.</h3 quote>
+<h3 quote align='center'>As I wrote, I found that Aibileen had some things to say that really weren't in her character.</h3 quote>
 
 ---
 
