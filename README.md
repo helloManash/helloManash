@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Great art - or good art - is when you look at it, experience it and it stays in your mind.</h3 quote>
+<h3 quote align='center'>Working with HBO was an opportunity to experience creative freedom and 'long-form development' that filmmakers didn't have a chance to do before the emergence of shows like 'The Sopranos.</h3 quote>
 
 ---
 
