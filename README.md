@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>At every step the child should be allowed to meet the real experience of life the thorns should never be plucked from his roses.</h3 quote>
+<h3 quote align='center'>There are two ways of spreading light: to be the candle or the mirror that reflects it.</h3 quote>
 
 ---
 
