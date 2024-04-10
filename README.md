@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our ideals are our better selves.</h3 quote>
+<h3 quote align='center'>At every step the child should be allowed to meet the real experience of life the thorns should never be plucked from his roses.</h3 quote>
 
 ---
 
