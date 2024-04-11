@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are two ways of spreading light: to be the candle or the mirror that reflects it.</h3 quote>
+<h3 quote align='center'>The intelligence of the lower forms of animal life, like a great deal of human intelligence, does not involve a self.</h3 quote>
 
 ---
 
