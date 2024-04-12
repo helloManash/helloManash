@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep your dreams alive.</h3 quote>
+<h3 quote align='center'>The war on terror, I believe, will be waged by effective intelligence and police work and cruise missiles.</h3 quote>
 
 ---
 
