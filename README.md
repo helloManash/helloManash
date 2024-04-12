@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>As a nation we have, over the past seven years, been rebuilding our intelligence with powerful capabilities that many thought we would no longer need after the Cold War.</h3 quote>
+<h3 quote align='center'>Keep your dreams alive.</h3 quote>
 
 ---
 
