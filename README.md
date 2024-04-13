@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Good management is the art of making problems so interesting and their solutions so constructive that everyone wants to get to work and deal with them.</h3 quote>
+<h3 quote align='center'>The moral flabbiness born of the exclusive worship of the Bitch-Goddess success.</h3 quote>
 
 ---
 
