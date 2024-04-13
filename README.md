@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The war on terror, I believe, will be waged by effective intelligence and police work and cruise missiles.</h3 quote>
+<h3 quote align='center'>Good management is the art of making problems so interesting and their solutions so constructive that everyone wants to get to work and deal with them.</h3 quote>
 
 ---
 
