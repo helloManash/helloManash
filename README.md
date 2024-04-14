@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Intelligence is our first line of defense against terrorism, and we must improve the collection capabilities and analysis of intelligence to protect the security of the United States and its allies.</h3 quote>
+<h3 quote align='center'>How is it possible that a being with such sensitive jewels as the eyes, such enchanted musical instruments as the ears, and such fabulous arabesque of nerves as the brain can experience itself anything less than a god.</h3 quote>
 
 ---
 
