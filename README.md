@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The moral flabbiness born of the exclusive worship of the Bitch-Goddess success.</h3 quote>
+<h3 quote align='center'>Intelligence is our first line of defense against terrorism, and we must improve the collection capabilities and analysis of intelligence to protect the security of the United States and its allies.</h3 quote>
 
 ---
 
