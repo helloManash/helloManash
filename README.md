@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You don't know what unconditional love is.</h3 quote>
+<h3 quote align='center'>I believe there's an inner power that makes winners or losers.</h3 quote>
 
 ---
 
