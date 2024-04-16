@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The secret to success is good leadership, and good leadership is all about making the lives of your team members or workers better.</h3 quote>
+<h3 quote align='center'>Every experience is a paradox in that it means to be absolute, and yet is relative in that it somehow always goes beyond itself and yet never escapes itself.</h3 quote>
 
 ---
 
