@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I believe there's an inner power that makes winners or losers.</h3 quote>
+<h3 quote align='center'>The secret to success is good leadership, and good leadership is all about making the lives of your team members or workers better.</h3 quote>
 
 ---
 
