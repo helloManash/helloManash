@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The only thing that ultimately matters is to eat an ice-cream cone, play a slide trombone, plant a small tree, good God, now you're free.</h3 quote>
+<h3 quote align='center'>A good objective of leadership is to help those who are doing poorly to do well and to help those who are doing well to do even better.</h3 quote>
 
 ---
 
