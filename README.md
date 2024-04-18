@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We can't help everyone, but everyone can help someone.</h3 quote>
+<h3 quote align='center'>God always gives His best to those who leave the choice with him.</h3 quote>
 
 ---
 
