@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A good objective of leadership is to help those who are doing poorly to do well and to help those who are doing well to do even better.</h3 quote>
+<h3 quote align='center'>We can't help everyone, but everyone can help someone.</h3 quote>
 
 ---
 
