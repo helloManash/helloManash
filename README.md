@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Actually, I don't ever think there will be a men-only team of leadership in the Labour party again.</h3 quote>
+<h3 quote align='center'>My attitude on skis is different now.</h3 quote>
 
 ---
 
