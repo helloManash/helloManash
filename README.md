@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My attitude on skis is different now.</h3 quote>
+<h3 quote align='center'>Woodrow Wilson called for leaders who, by boldly interpreting the nation's conscience, could lift a people out of their everyday selves.</h3 quote>
 
 ---
 
