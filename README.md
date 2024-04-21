@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Security is mostly a superstition.</h3 quote>
+<h3 quote align='center'>Nothing succeeds like success.</h3 quote>
 
 ---
 
