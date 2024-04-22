@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nothing succeeds like success.</h3 quote>
+<h3 quote align='center'>We convince by our presence.</h3 quote>
 
 ---
 
