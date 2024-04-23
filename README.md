@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Don't limit yourself.</h3 quote>
+<h3 quote align='center'>Happiness is the natural flower of duty.</h3 quote>
 
 ---
 
