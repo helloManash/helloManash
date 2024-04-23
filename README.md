@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Wide awake I can make my most fantastic dreams come true.</h3 quote>
+<h3 quote align='center'>Don't limit yourself.</h3 quote>
 
 ---
 
