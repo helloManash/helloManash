@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't want people to sit there and objectively watch the film.</h3 quote>
+<h3 quote align='center'>Dr.</h3 quote>
 
 ---
 
