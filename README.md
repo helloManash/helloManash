@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The secret of success is sincerity.</h3 quote>
+<h3 quote align='center'>The problem was just a mean attitude that festers and has to be challenged.</h3 quote>
 
 ---
 
