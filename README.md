@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The problem was just a mean attitude that festers and has to be challenged.</h3 quote>
+<h3 quote align='center'>The best form of flattery is to be admired, imitated or respected.</h3 quote>
 
 ---
 
