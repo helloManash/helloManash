@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If at first you don't succeed, try, try, again.</h3 quote>
+<h3 quote align='center'>People who don't take risks generally make about two big mistakes a year.</h3 quote>
 
 ---
 
