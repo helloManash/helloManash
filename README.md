@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The best form of flattery is to be admired, imitated or respected.</h3 quote>
+<h3 quote align='center'>If at first you don't succeed, try, try, again.</h3 quote>
 
 ---
 
