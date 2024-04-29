@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dr.</h3 quote>
+<h3 quote align='center'>The work goes on, the cause endures, the hope still lives and the dreams shall never die.</h3 quote>
 
 ---
 
