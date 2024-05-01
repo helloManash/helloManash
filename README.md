@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Each experience through which we pass operates ultimately for our good.</h3 quote>
+<h3 quote align='center'>Most 'reality' shows aren't reality at all.</h3 quote>
 
 ---
 
