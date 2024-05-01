@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Most 'reality' shows aren't reality at all.</h3 quote>
+<h3 quote align='center'>It has always amazed me how tax cuts don't work until they take effect.</h3 quote>
 
 ---
 
