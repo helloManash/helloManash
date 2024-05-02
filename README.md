@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Great art - or good art - is when you look at it, experience it and it stays in your mind.</h3 quote>
+<h3 quote align='center'>There are two ways of spreading light: to be the candle or the mirror that reflects it.</h3 quote>
 
 ---
 
