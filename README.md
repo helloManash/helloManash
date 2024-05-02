@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It has always amazed me how tax cuts don't work until they take effect.</h3 quote>
+<h3 quote align='center'>Great art - or good art - is when you look at it, experience it and it stays in your mind.</h3 quote>
 
 ---
 
