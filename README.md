@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Tread softly because you tread on my dreams.</h3 quote>
+<h3 quote align='center'>Think with your whole body.</h3 quote>
 
 ---
 
