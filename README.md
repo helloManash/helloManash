@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Think with your whole body.</h3 quote>
+<h3 quote align='center'>I feel like I have as good a shot as anybody out there and I have gotten close in the past, so why not have the attitude that I can come out and play great tennis and maybe even win this tournament.</h3 quote>
 
 ---
 
