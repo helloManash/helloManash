@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'm not trying to be romantic.</h3 quote>
+<h3 quote align='center'>Tears are often the telescope by which men see far into heaven.</h3 quote>
 
 ---
 
