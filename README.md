@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I just hope that theaters remain.</h3 quote>
+<h3 quote align='center'>There's a void of leadership in a lot of Washington.</h3 quote>
 
 ---
 
