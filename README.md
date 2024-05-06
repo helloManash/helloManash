@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Tears are often the telescope by which men see far into heaven.</h3 quote>
+<h3 quote align='center'>I just hope that theaters remain.</h3 quote>
 
 ---
 
