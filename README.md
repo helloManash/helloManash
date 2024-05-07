@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There's a void of leadership in a lot of Washington.</h3 quote>
+<h3 quote align='center'>These are tough times and under this Tory-led government many people in Manchester are suffering and getting left behind.</h3 quote>
 
 ---
 
