@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>These are tough times and under this Tory-led government many people in Manchester are suffering and getting left behind.</h3 quote>
+<h3 quote align='center'>Learning how to be still, to really be still and let life happen - that stillness becomes a radiance.</h3 quote>
 
 ---
 
