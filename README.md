@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Cynicism is the intellectual cripple's substitute for intelligence.</h3 quote>
+<h3 quote align='center'>Instead of begging OPEC to drop its oil prices, let's use American leadership and ingenuity to solve our own energy problems.</h3 quote>
 
 ---
 
