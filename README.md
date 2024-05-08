@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Learning how to be still, to really be still and let life happen - that stillness becomes a radiance.</h3 quote>
+<h3 quote align='center'>Cynicism is the intellectual cripple's substitute for intelligence.</h3 quote>
 
 ---
 
