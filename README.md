@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Instead of begging OPEC to drop its oil prices, let's use American leadership and ingenuity to solve our own energy problems.</h3 quote>
+<h3 quote align='center'>In long experience I find that a man who trusts nobody is apt to be the kind of man nobody trusts.</h3 quote>
 
 ---
 
