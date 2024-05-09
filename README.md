@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In long experience I find that a man who trusts nobody is apt to be the kind of man nobody trusts.</h3 quote>
+<h3 quote align='center'>This Congress is simply not doing its job under Republican leadership.</h3 quote>
 
 ---
 
