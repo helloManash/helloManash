@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Life it is not just a series of calculations and a sum total of statistics, it's about experience, it's about participation, it is something more complex and more interesting than what is obvious.</h3 quote>
+<h3 quote align='center'>Modern Orthodoxy has a highly positive attitude toward the State of Israel.</h3 quote>
 
 ---
 
