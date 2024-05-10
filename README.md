@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>This Congress is simply not doing its job under Republican leadership.</h3 quote>
+<h3 quote align='center'>Life it is not just a series of calculations and a sum total of statistics, it's about experience, it's about participation, it is something more complex and more interesting than what is obvious.</h3 quote>
 
 ---
 
