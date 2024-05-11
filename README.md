@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>When a child, my dreams rode on your wishes, I was your son, high on your horse, My mind a top whipped by the lashes Of your rhetoric, windy of course.</h3 quote>
+<h3 quote align='center'>Ambition is not a vice of little people.</h3 quote>
 
 ---
 
