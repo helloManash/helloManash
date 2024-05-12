@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ambition is not a vice of little people.</h3 quote>
+<h3 quote align='center'>We're in a leadership position in sports.</h3 quote>
 
 ---
 
