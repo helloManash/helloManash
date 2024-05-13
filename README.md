@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The war changed everybody's attitude.</h3 quote>
+<h3 quote align='center'>There is no logical reason why the camel of great art should pass through the needle of mob intelligence.</h3 quote>
 
 ---
 
