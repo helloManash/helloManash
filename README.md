@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Everybody's entitled to think whatever they want and to express that, but my personal day-to-day experience does not come into contact with any of those people.</h3 quote>
+<h3 quote align='center'>There is a time in the tides of men, Which, taken at its flood, leads on to success.</h3 quote>
 
 ---
 
