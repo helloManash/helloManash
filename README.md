@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The most dangerous leadership myth is that leaders are born-that there is a genetic factor to leadership.</h3 quote>
+<h3 quote align='center'>The reward of a thing well done is to have done it.</h3 quote>
 
 ---
 
