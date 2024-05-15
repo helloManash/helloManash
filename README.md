@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There is a time in the tides of men, Which, taken at its flood, leads on to success.</h3 quote>
+<h3 quote align='center'>The most dangerous leadership myth is that leaders are born-that there is a genetic factor to leadership.</h3 quote>
 
 ---
 
