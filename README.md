@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The reward of a thing well done is to have done it.</h3 quote>
+<h3 quote align='center'>The road to success is filled with women pushing their husbands along.</h3 quote>
 
 ---
 
