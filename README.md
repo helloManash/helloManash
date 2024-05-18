@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Look within.</h3 quote>
+<h3 quote align='center'>The way to kill a man or a nation is to cut off his dreams, the way the whites are taking care of the Indians: killing their dreams, their magic, their familiar spirits.</h3 quote>
 
 ---
 
