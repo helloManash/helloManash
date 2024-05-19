@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you're working on a movie, you want it to be projected on the largest tapestry possible, and the sound to be perfect, and for that kind of communal experience of the movies to take place for it.</h3 quote>
+<h3 quote align='center'>Leadership demands that we make tough choices.</h3 quote>
 
 ---
 
