@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The only people that ever stand up and tell the truth are who? Intelligence officers.</h3 quote>
+<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
 
 ---
 
