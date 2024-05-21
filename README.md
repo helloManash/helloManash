@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You know, as director of the CIA, I got an awful lot of intelligence about all the horrible things that could go on across the world.</h3 quote>
+<h3 quote align='center'>The only people that ever stand up and tell the truth are who? Intelligence officers.</h3 quote>
 
 ---
 
