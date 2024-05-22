@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
+<h3 quote align='center'>Succeeding is not really a life experience that does that much good.</h3 quote>
 
 ---
 
