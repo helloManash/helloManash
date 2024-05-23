@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You don't look out there for God, something in the sky, you look in you.</h3 quote>
+<h3 quote align='center'>I had one relative who passed away but fortunately none others.</h3 quote>
 
 ---
 
