@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Thinking: the talking of the soul with itself.</h3 quote>
+<h3 quote align='center'>You don't look out there for God, something in the sky, you look in you.</h3 quote>
 
 ---
 
