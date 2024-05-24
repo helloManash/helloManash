@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We have now under President Obama's leadership had 29 months in a row of private sector job growth.</h3 quote>
+<h3 quote align='center'>All men dream: but not equally.</h3 quote>
 
 ---
 
