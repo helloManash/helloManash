@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>President Ford was a devoted, decent man of impeccable integrity who put service to his country before his own self interest.</h3 quote>
+<h3 quote align='center'>It has yet to be proven that intelligence has any survival value.</h3 quote>
 
 ---
 
