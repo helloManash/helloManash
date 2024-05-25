@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>All men dream: but not equally.</h3 quote>
+<h3 quote align='center'>President Ford was a devoted, decent man of impeccable integrity who put service to his country before his own self interest.</h3 quote>
 
 ---
 
