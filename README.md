@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It has yet to be proven that intelligence has any survival value.</h3 quote>
+<h3 quote align='center'>In Fame's temple there is always a niche to be found for rich dunces, importunate scoundrels or successful butchers of the human race.</h3 quote>
 
 ---
 
