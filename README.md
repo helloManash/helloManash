@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Corporate America cannot afford to remain silent or passive about the downward spiral we are undergoing.</h3 quote>
+<h3 quote align='center'>An athlete cannot run with money in his pockets.</h3 quote>
 
 ---
 
