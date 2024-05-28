@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ambition often puts men upon doing the meanest offices: so climbing is performed in the same posture with creeping.</h3 quote>
+<h3 quote align='center'>In a couple, sometimes, one or both people have to give up their personal life, dreams and ambitions for the good of the family.</h3 quote>
 
 ---
 
