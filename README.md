@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>An athlete cannot run with money in his pockets.</h3 quote>
+<h3 quote align='center'>Ambition often puts men upon doing the meanest offices: so climbing is performed in the same posture with creeping.</h3 quote>
 
 ---
 
