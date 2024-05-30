@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is not enough to aim, you must hit.</h3 quote>
+<h3 quote align='center'>Clouds come floating into my life, no longer to carry rain or usher storm, but to add color to my sunset sky.</h3 quote>
 
 ---
 
