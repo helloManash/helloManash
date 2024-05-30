@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Clouds come floating into my life, no longer to carry rain or usher storm, but to add color to my sunset sky.</h3 quote>
+<h3 quote align='center'>Faith is love taking the form of aspiration.</h3 quote>
 
 ---
 
