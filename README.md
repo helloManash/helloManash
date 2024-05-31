@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Faith is love taking the form of aspiration.</h3 quote>
+<h3 quote align='center'>To so enter into it in nature and art that the enjoyed meanings of life may become a part of living is the attitude of aesthetic appreciation.</h3 quote>
 
 ---
 
