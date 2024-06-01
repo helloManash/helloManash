@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I think it has something to do with being British.</h3 quote>
+<h3 quote align='center'>Leadership is an opportunity to serve.</h3 quote>
 
 ---
 
