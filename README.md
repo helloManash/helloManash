@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>As knowledge increases, wonder deepens.</h3 quote>
+<h3 quote align='center'>Nurture your minds with great thoughts.</h3 quote>
 
 ---
 
