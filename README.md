@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nurture your minds with great thoughts.</h3 quote>
+<h3 quote align='center'>God is another name for human intelligence raised above all error and imperfection, and extended to all possible truth.</h3 quote>
 
 ---
 
