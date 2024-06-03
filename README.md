@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The school made it very clear that women were entitled to positions of authority.</h3 quote>
+<h3 quote align='center'>Americans have always had an ambivalent attitude toward intelligence.</h3 quote>
 
 ---
 
