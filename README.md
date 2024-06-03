@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>God is another name for human intelligence raised above all error and imperfection, and extended to all possible truth.</h3 quote>
+<h3 quote align='center'>The school made it very clear that women were entitled to positions of authority.</h3 quote>
 
 ---
 
