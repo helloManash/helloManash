@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>At some time in the life cycle of virtually every organization, its ability to succeed in spite of itself runs out.</h3 quote>
+<h3 quote align='center'>It's really necessary for the United States to continue to give strong leadership to the Middle East peace process, supported by European countries at the same time.</h3 quote>
 
 ---
 
