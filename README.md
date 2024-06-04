@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Americans have always had an ambivalent attitude toward intelligence.</h3 quote>
+<h3 quote align='center'>At some time in the life cycle of virtually every organization, its ability to succeed in spite of itself runs out.</h3 quote>
 
 ---
 
