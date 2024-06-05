@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We can revolutionize the attitude of inner city brown and black kids to learning.</h3 quote>
+<h3 quote align='center'>From the lowest animals of which we can affirm intelligence up to man this type of intellect is found.</h3 quote>
 
 ---
 
