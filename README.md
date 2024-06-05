@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's really necessary for the United States to continue to give strong leadership to the Middle East peace process, supported by European countries at the same time.</h3 quote>
+<h3 quote align='center'>We can revolutionize the attitude of inner city brown and black kids to learning.</h3 quote>
 
 ---
 
