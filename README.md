@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>From the lowest animals of which we can affirm intelligence up to man this type of intellect is found.</h3 quote>
+<h3 quote align='center'>As for leadership, I am the kind who leads reluctantly and more by example than anything else.</h3 quote>
 
 ---
 
