@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Artificial Intelligence leaves no doubt that it wants its audiences to enter a realm of pure fantasy when it identifies one of the last remaining islands of civilization as New Jersey.</h3 quote>
+<h3 quote align='center'>Ideas shape the course of history.</h3 quote>
 
 ---
 
