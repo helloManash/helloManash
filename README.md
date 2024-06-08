@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ideas shape the course of history.</h3 quote>
+<h3 quote align='center'>When a man blames others for his failures, it's a good idea to credit others with his successes.</h3 quote>
 
 ---
 
