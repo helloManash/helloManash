@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Of two pleasures, if there be one which all or almost all who have experience of both give a decided preference, irrespective of any feeling of moral obligation to prefer it, that is the more desirable pleasure.</h3 quote>
+<h3 quote align='center'>If you wish to be a success in the world, promise everything, deliver nothing.</h3 quote>
 
 ---
 
