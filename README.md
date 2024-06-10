@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our subjective experience of time is highly variable.</h3 quote>
+<h3 quote align='center'>It goes without saying that the Jewish people can have no other goal than Palestine and that, whatever the fate of the proposition may be, our attitude toward the land of our fathers is and shall remain unchangeable.</h3 quote>
 
 ---
 
