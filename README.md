@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's always an interesting experience for a politician to be heard in silence, I have to say.</h3 quote>
+<h3 quote align='center'>It doesn't matter that Bush scares the hell out of me.</h3 quote>
 
 ---
 
