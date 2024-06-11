@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It doesn't matter that Bush scares the hell out of me.</h3 quote>
+<h3 quote align='center'>The resistance of a woman is not always a proof of her virtue, but more frequently of her experience.</h3 quote>
 
 ---
 
