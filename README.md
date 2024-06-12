@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The Cut' is going to give someone the opportunity of a lifetime and help that person achieve his or her dreams.</h3 quote>
+<h3 quote align='center'>I go by instinct - I don't worry about experience.</h3 quote>
 
 ---
 
