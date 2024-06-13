@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If the presence of electricity can be made visible in any part of the circuit, I see no reason why intelligence may not be transmitted instantaneously by electricity.</h3 quote>
+<h3 quote align='center'>I will not get very far with this attitude.</h3 quote>
 
 ---
 
