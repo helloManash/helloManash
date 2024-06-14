@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The Homeland Security department doesn't have tasking authority in the intelligence community.</h3 quote>
+<h3 quote align='center'>No rational argument will have a rational effect on a man who does not want to adopt a rational attitude.</h3 quote>
 
 ---
 
