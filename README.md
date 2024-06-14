@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I will not get very far with this attitude.</h3 quote>
+<h3 quote align='center'>The Homeland Security department doesn't have tasking authority in the intelligence community.</h3 quote>
 
 ---
 
