@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>No rational argument will have a rational effect on a man who does not want to adopt a rational attitude.</h3 quote>
+<h3 quote align='center'>Your attitude is like a box of crayons that color your world.</h3 quote>
 
 ---
 
