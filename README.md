@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I wasn't privy to all of the intelligence that was coming in about Guatemala, but I did see the traffic that was coming in from Guatemala City, because it was very relevant to me, and of course I exchanged what I had with the chief of station in Guatemala City.</h3 quote>
+<h3 quote align='center'>The penalty of success is to be bored by the attentions of people who formerly snubbed you.</h3 quote>
 
 ---
 
