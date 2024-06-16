@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The penalty of success is to be bored by the attentions of people who formerly snubbed you.</h3 quote>
+<h3 quote align='center'>We have actually experienced in recent months a dramatic demonstration of an unprecedented intelligence failure, perhaps the most significant intelligence failure in the history of the United States.</h3 quote>
 
 ---
 
