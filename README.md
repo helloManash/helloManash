@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I can give you a six-word formula for success: "Think things through - then follow through.</h3 quote>
+<h3 quote align='center'>The leadership lost its nerve.</h3 quote>
 
 ---
 
