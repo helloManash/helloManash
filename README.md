@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We have actually experienced in recent months a dramatic demonstration of an unprecedented intelligence failure, perhaps the most significant intelligence failure in the history of the United States.</h3 quote>
+<h3 quote align='center'>I can give you a six-word formula for success: "Think things through - then follow through.</h3 quote>
 
 ---
 
