@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Once I knew only darkness and stillness.</h3 quote>
+<h3 quote align='center'>Whose leadership, whose judgment, whose values do you want in the White House when that crisis lands like a thud on the Oval Office desk?.</h3 quote>
 
 ---
 
