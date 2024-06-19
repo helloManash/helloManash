@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Whose leadership, whose judgment, whose values do you want in the White House when that crisis lands like a thud on the Oval Office desk?.</h3 quote>
+<h3 quote align='center'>Leadership is the key to 99 percent of all successful efforts.</h3 quote>
 
 ---
 
