@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Where there is an absence of international political leadership, civil society should step in to fill the gap, providing the energy and vision needed to move the world in a new and better direction.</h3 quote>
+<h3 quote align='center'>Your present circumstances don't determine where you can go they merely determine where you start.</h3 quote>
 
 ---
 
