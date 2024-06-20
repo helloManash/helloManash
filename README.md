@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership is the key to 99 percent of all successful efforts.</h3 quote>
+<h3 quote align='center'>Where there is an absence of international political leadership, civil society should step in to fill the gap, providing the energy and vision needed to move the world in a new and better direction.</h3 quote>
 
 ---
 
