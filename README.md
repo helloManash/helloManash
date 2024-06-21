@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It takes intelligence to make real comedy, and it takes a reality base to create all that little stuff I like to do that makes you giggle inside.</h3 quote>
+<h3 quote align='center'>We are near waking when we dream we are dreaming.</h3 quote>
 
 ---
 
