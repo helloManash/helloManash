@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Being a part of SKECHERS is exciting.</h3 quote>
+<h3 quote align='center'>There's always the motivation of wanting to win.</h3 quote>
 
 ---
 
