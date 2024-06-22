@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We are near waking when we dream we are dreaming.</h3 quote>
+<h3 quote align='center'>Being a part of SKECHERS is exciting.</h3 quote>
 
 ---
 
