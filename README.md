@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ambition is so powerful a passion in the human breast, that however high we reach we are never satisfied.</h3 quote>
+<h3 quote align='center'>If you command wisely, you'll be obeyed cheerfully.</h3 quote>
 
 ---
 
