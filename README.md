@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>God's way of answering the Christian's prayer for more patience, experience, hope and love often is to put him into the furnace of affliction.</h3 quote>
+<h3 quote align='center'>The atmosphere at my school was very competitive.</h3 quote>
 
 ---
 
