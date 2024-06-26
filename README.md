@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I want to organize so that women see ourselves as people who are entitled to power, entitled to leadership.</h3 quote>
+<h3 quote align='center'>Crime is terribly revealing.</h3 quote>
 
 ---
 
