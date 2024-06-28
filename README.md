@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And now, this is the sweetest and most glorious day that ever my eyes did see.</h3 quote>
+<h3 quote align='center'>I'm not a good shot, but I shoot often.</h3 quote>
 
 ---
 
