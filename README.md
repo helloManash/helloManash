@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Getting in touch with your true self must be your first priority.</h3 quote>
+<h3 quote align='center'>Success - keeping your mind awake and your desire asleep.</h3 quote>
 
 ---
 
