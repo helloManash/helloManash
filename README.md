@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</h3 quote>
+<h3 quote align='center'>Getting in touch with your true self must be your first priority.</h3 quote>
 
 ---
 
