@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Think with your whole body.</h3 quote>
+<h3 quote align='center'>But the ability to articulate what you are doing, to be clear about it, and to stick to it is, I think, the essence of political leadership.</h3 quote>
 
 ---
 
