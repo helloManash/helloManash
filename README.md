@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success - keeping your mind awake and your desire asleep.</h3 quote>
+<h3 quote align='center'>Think with your whole body.</h3 quote>
 
 ---
 
