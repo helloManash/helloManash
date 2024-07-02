@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Never refuse an assignment except when there is a conflict of interest, a potential of danger to you or your family, or you hold a strongly biased attitude about the subject under focus.</h3 quote>
+<h3 quote align='center'>My heroes, my dreams, and my future lay in Yankee Stadium.</h3 quote>
 
 ---
 
