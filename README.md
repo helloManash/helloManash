@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It doesn't matter that Bush scares the hell out of me.</h3 quote>
+<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
 
 ---
 
