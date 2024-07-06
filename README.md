@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't intend to simply go away and write my plays and be a good boy.</h3 quote>
+<h3 quote align='center'>Once you're in a particular country, and you're surrounded by musicians who are so adept at traditional music, you suddenly realize how much there is to explore and digest and learn and experience.</h3 quote>
 
 ---
 
