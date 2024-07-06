@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
+<h3 quote align='center'>I don't intend to simply go away and write my plays and be a good boy.</h3 quote>
 
 ---
 
