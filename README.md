@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Go as far as you can see when you get there, you'll be able to see farther.</h3 quote>
+<h3 quote align='center'>To the artist is sometimes granted a sudden, transient insight which serves in this matter for experience.</h3 quote>
 
 ---
 
