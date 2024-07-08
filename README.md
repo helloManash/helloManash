@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I led the life of an intellectual up until a certain age.</h3 quote>
+<h3 quote align='center'>Would it not be much better to have a president who deliberately lied to the people because he thought a war was essential than to have one who was so dumb as to be taken in by intelligence agencies, especially those who told him what he wanted to hear?.</h3 quote>
 
 ---
 
