@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>To the artist is sometimes granted a sudden, transient insight which serves in this matter for experience.</h3 quote>
+<h3 quote align='center'>I led the life of an intellectual up until a certain age.</h3 quote>
 
 ---
 
