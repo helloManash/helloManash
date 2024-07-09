@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Would it not be much better to have a president who deliberately lied to the people because he thought a war was essential than to have one who was so dumb as to be taken in by intelligence agencies, especially those who told him what he wanted to hear?.</h3 quote>
+<h3 quote align='center'>I've always had a 'Work hard, play hard' attitude to life - I still do - but sometimes you get involved in something that needs a calm, methodical approach.</h3 quote>
 
 ---
 
