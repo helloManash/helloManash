@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I've always had a 'Work hard, play hard' attitude to life - I still do - but sometimes you get involved in something that needs a calm, methodical approach.</h3 quote>
+<h3 quote align='center'>How we think shows through in how we act.</h3 quote>
 
 ---
 
