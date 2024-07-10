@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If a person can be said to have the wrong attitude, there is no need to pay attention to his arguments.</h3 quote>
+<h3 quote align='center'>A place for everything, everything in its place.</h3 quote>
 
 ---
 
