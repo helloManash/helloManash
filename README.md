@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Many openly show discontentment with their looks, but few with their intelligence.</h3 quote>
+<h3 quote align='center'>I've had a lot of experience in independent film, and about how to choose.</h3 quote>
 
 ---
 
