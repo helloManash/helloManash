@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I've had a lot of experience in independent film, and about how to choose.</h3 quote>
+<h3 quote align='center'>Leadership is about being a servant first.</h3 quote>
 
 ---
 
