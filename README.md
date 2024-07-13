@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership is about being a servant first.</h3 quote>
+<h3 quote align='center'>Hope lies in dreams, in imagination, and in the courage of those who dare to make dreams into reality.</h3 quote>
 
 ---
 
