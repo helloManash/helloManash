@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In bed my real love has always been the sleep that rescued me by allowing me to dream.</h3 quote>
+<h3 quote align='center'>The immediacy of mystic experience simply means that we know God just as we know other objects.</h3 quote>
 
 ---
 
