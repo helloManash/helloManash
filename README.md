@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I knew I could not maintain that leadership in open struggle against Moscow influence.</h3 quote>
+<h3 quote align='center'>In bed my real love has always been the sleep that rescued me by allowing me to dream.</h3 quote>
 
 ---
 
