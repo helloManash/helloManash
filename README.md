@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The immediacy of mystic experience simply means that we know God just as we know other objects.</h3 quote>
+<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
 
 ---
 
