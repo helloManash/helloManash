@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The worst part of having success is to try finding someone who is happy for you.</h3 quote>
+<h3 quote align='center'>Learning how to be still, to really be still and let life happen - that stillness becomes a radiance.</h3 quote>
 
 ---
 
