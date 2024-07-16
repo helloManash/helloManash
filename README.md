@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Deep into that darkness peering, long I stood there, wondering, fearing, doubting, dreaming dreams no mortal ever dared to dream before.</h3 quote>
+<h3 quote align='center'>The truth is on the march and nothing will stop it.</h3 quote>
 
 ---
 
