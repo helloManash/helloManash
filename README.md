@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The truth is on the march and nothing will stop it.</h3 quote>
+<h3 quote align='center'>Lying in bed would be an altogether perfect and supreme experience if only one had a colored pencil long enough to draw on the ceiling.</h3 quote>
 
 ---
 
