@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Lying in bed would be an altogether perfect and supreme experience if only one had a colored pencil long enough to draw on the ceiling.</h3 quote>
+<h3 quote align='center'>In George Bush you get experience, and with me you get - The Future!.</h3 quote>
 
 ---
 
