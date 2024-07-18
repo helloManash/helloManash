@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In George Bush you get experience, and with me you get - The Future!.</h3 quote>
+<h3 quote align='center'>It was my mother's idea.</h3 quote>
 
 ---
 
