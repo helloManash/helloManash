@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Barack Obama knows that to create an economy built to last, we need to focus on middle-class families.</h3 quote>
+<h3 quote align='center'>God gives us intelligence to uncover the wonders of nature.</h3 quote>
 
 ---
 
