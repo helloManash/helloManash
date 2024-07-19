@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>God gives us intelligence to uncover the wonders of nature.</h3 quote>
+<h3 quote align='center'>Freedom is not an ideal, it is not even a protection, if it means nothing more than freedom to stagnate, to live without dreams, to have no greater aim than a second car and another television set.</h3 quote>
 
 ---
 
