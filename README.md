@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are a lot of things that make up a performance, a lot of technical things.</h3 quote>
+<h3 quote align='center'>The traveler was active he went strenuously in search of people, of adventure, of experience.</h3 quote>
 
 ---
 
