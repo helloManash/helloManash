@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Freedom is not an ideal, it is not even a protection, if it means nothing more than freedom to stagnate, to live without dreams, to have no greater aim than a second car and another television set.</h3 quote>
+<h3 quote align='center'>There are a lot of things that make up a performance, a lot of technical things.</h3 quote>
 
 ---
 
