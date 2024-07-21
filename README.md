@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The traveler was active he went strenuously in search of people, of adventure, of experience.</h3 quote>
+<h3 quote align='center'>Ambition is not a vice of little people.</h3 quote>
 
 ---
 
