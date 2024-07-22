@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I just try to try to keep an attitude that I don't know what I'm doing.</h3 quote>
+<h3 quote align='center'>Men are wise in proportion, not to their experience, but to their capacity for experience.</h3 quote>
 
 ---
 
