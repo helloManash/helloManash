@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men are wise in proportion, not to their experience, but to their capacity for experience.</h3 quote>
+<h3 quote align='center'>Our theme for this year's festivities, Dreams and Challenges of Asian Pacific Americans, speaks to the many generations of Asian Pacific Americans who worked hard to overcome economic hardship, racism and other barriers in their pursuit of the American dream.</h3 quote>
 
 ---
 
