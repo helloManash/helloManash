@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'm not a romantic.</h3 quote>
+<h3 quote align='center'>I think everyone's experience with a terminal disease is so deeply personal and unique to the person, the context in which they're living and the relationships that they have.</h3 quote>
 
 ---
 
