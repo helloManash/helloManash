@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The secret to understanding me is, I'm not trying to be anybody other than who I actually am.</h3 quote>
+<h3 quote align='center'>I believe there's an inner power that makes winners or losers.</h3 quote>
 
 ---
 
