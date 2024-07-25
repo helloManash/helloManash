@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Happiness cannot be traveled to, owned, earned, worn or consumed.</h3 quote>
+<h3 quote align='center'>Ambition often puts men upon doing the meanest offices: so climbing is performed in the same posture with creeping.</h3 quote>
 
 ---
 
