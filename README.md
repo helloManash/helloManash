@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You can't hold a man down without staying down with him.</h3 quote>
+<h3 quote align='center'>I don't dream songs.</h3 quote>
 
 ---
 
