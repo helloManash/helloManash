@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A noble man compares and estimates himself by an idea which is higher than himself; and a mean man, by one lower than himself.</h3 quote>
+<h3 quote align='center'>IN April 1882 my father died and I was at once whirled out of my land of dreams into a very different sphere.</h3 quote>
 
 ---
 
