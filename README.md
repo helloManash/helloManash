@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't dream songs.</h3 quote>
+<h3 quote align='center'>A noble man compares and estimates himself by an idea which is higher than himself; and a mean man, by one lower than himself.</h3 quote>
 
 ---
 
