@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>IN April 1882 my father died and I was at once whirled out of my land of dreams into a very different sphere.</h3 quote>
+<h3 quote align='center'>I need that aggressive attitude to play my music and more men have that attitude than women.</h3 quote>
 
 ---
 
