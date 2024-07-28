@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I need that aggressive attitude to play my music and more men have that attitude than women.</h3 quote>
+<h3 quote align='center'>Follow your dreams.</h3 quote>
 
 ---
 
