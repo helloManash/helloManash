@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Follow your dreams.</h3 quote>
+<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
 
 ---
 
