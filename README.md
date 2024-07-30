@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are a lot of obstacles in the way of our understanding animal intelligence - not the least being that we can't even agree whether nonhuman species are conscious.</h3 quote>
+<h3 quote align='center'>I believe that imagination is stronger than knowledge.</h3 quote>
 
 ---
 
