@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Germany must be a country which generates political ideas and leadership, which is capable of compromise, which is sovereign and yet knows that it needs its partners on both sides of the Atlantic.</h3 quote>
+<h3 quote align='center'>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</h3 quote>
 
 ---
 
