@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What we heard today was not fiscal leadership from our Commander-in-Chief, what we heard today was a political broadside from our Campaigner-in-Chief.</h3 quote>
+<h3 quote align='center'>Divorced from ethics, leadership is reduced to management and politics to mere technique.</h3 quote>
 
 ---
 
