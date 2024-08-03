@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I believe that in Europe, we have a collective leadership.</h3 quote>
+<h3 quote align='center'>Music is your own experience, your own thoughts, your wisdom.</h3 quote>
 
 ---
 
