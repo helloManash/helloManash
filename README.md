@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Music is your own experience, your own thoughts, your wisdom.</h3 quote>
+<h3 quote align='center'>I have looked into your eyes with my eyes.</h3 quote>
 
 ---
 
