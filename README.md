@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I have looked into your eyes with my eyes.</h3 quote>
+<h3 quote align='center'>Nothing succeeds like success.</h3 quote>
 
 ---
 
