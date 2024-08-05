@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nothing succeeds like success.</h3 quote>
+<h3 quote align='center'>Success is not forever, and failure is not fatal.</h3 quote>
 
 ---
 
