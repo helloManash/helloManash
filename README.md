@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Most people would succeed in small things if they were not troubled with great ambitions.</h3 quote>
+<h3 quote align='center'>President Ford was a devoted, decent man of impeccable integrity who put service to his country before his own self interest.</h3 quote>
 
 ---
 
