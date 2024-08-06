@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>To establish ourselves in the world, we have to do all we can to appear established.</h3 quote>
+<h3 quote align='center'>Most people would succeed in small things if they were not troubled with great ambitions.</h3 quote>
 
 ---
 
