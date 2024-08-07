@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>As I've grown - dare I say it - older, I had hopes of indulging my dreams of being a sailor.</h3 quote>
+<h3 quote align='center'>How easy to be amiable in the midst of happiness and success.</h3 quote>
 
 ---
 
