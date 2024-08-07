@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>President Ford was a devoted, decent man of impeccable integrity who put service to his country before his own self interest.</h3 quote>
+<h3 quote align='center'>As I've grown - dare I say it - older, I had hopes of indulging my dreams of being a sailor.</h3 quote>
 
 ---
 
