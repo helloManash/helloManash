@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The difference between failure and success is doing a thing nearly right and doing a thing exactly right.</h3 quote>
+<h3 quote align='center'>I take parenting incredibly seriously.</h3 quote>
 
 ---
 
