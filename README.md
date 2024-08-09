@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I take parenting incredibly seriously.</h3 quote>
+<h3 quote align='center'>Attitude is attitude, whether you're a West Coast gangster or East Coast gangster, you know?.</h3 quote>
 
 ---
 
