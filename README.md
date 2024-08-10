@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership and learning are indispensable to each other.</h3 quote>
+<h3 quote align='center'>Men will never establish any equality with which they can be contented.</h3 quote>
 
 ---
 
