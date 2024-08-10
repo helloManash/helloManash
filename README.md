@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men will never establish any equality with which they can be contented.</h3 quote>
+<h3 quote align='center'>Ambition is not a vice of little people.</h3 quote>
 
 ---
 
