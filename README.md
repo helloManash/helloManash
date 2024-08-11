@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We've been sitting at the compromise table for a long time.</h3 quote>
+<h3 quote align='center'>Happiness resides not in possessions, and not in gold, happiness dwells in the soul.</h3 quote>
 
 ---
 
