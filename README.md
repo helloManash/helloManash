@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ambition is not a vice of little people.</h3 quote>
+<h3 quote align='center'>We've been sitting at the compromise table for a long time.</h3 quote>
 
 ---
 
