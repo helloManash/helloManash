@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success to me is having ten honeydew melons and only eating the top half of each one.</h3 quote>
+<h3 quote align='center'>The rare person is still interested in new advances when they are adults.</h3 quote>
 
 ---
 
