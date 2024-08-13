@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We're in a leadership position in sports.</h3 quote>
+<h3 quote align='center'>Success to me is having ten honeydew melons and only eating the top half of each one.</h3 quote>
 
 ---
 
