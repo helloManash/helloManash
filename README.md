@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The rare person is still interested in new advances when they are adults.</h3 quote>
+<h3 quote align='center'>You are always free to change your mind and choose a different future, or a different past.</h3 quote>
 
 ---
 
