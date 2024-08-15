@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Life affords no higher pleasure than that of surmounting difficulties, passing from one step of success to another, forming new wishes and seeing them gratified.</h3 quote>
+<h3 quote align='center'>Success is overrated.</h3 quote>
 
 ---
 
