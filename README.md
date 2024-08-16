@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is overrated.</h3 quote>
+<h3 quote align='center'>Ambition has one heel nailed in well, though she stretch her fingers to touch the heavens.</h3 quote>
 
 ---
 
