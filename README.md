@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>When you are thwarted, it is your own attitude that is out of order.</h3 quote>
+<h3 quote align='center'>The moral flabbiness born of the exclusive worship of the Bitch-Goddess success.</h3 quote>
 
 ---
 
