@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The moral flabbiness born of the exclusive worship of the Bitch-Goddess success.</h3 quote>
+<h3 quote align='center'>What really matters is the name you succeed in imposing on the facts not the facts themselves.</h3 quote>
 
 ---
 
