@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I believe that reforming our intelligence community is one of the most important things that we can do in order to ensure that our country is in fact safer, stronger and wiser.</h3 quote>
+<h3 quote align='center'>Our attitude towards others determines their attitude towards us.</h3 quote>
 
 ---
 
