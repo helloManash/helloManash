@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What really matters is the name you succeed in imposing on the facts not the facts themselves.</h3 quote>
+<h3 quote align='center'>I believe that reforming our intelligence community is one of the most important things that we can do in order to ensure that our country is in fact safer, stronger and wiser.</h3 quote>
 
 ---
 
