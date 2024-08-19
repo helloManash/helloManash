@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Try not.</h3 quote>
+<h3 quote align='center'>It's my experience that you really can't lose when you try the truth.</h3 quote>
 
 ---
 
