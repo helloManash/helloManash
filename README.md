@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our attitude towards others determines their attitude towards us.</h3 quote>
+<h3 quote align='center'>Try not.</h3 quote>
 
 ---
 
