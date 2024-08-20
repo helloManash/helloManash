@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's my experience that you really can't lose when you try the truth.</h3 quote>
+<h3 quote align='center'>If you command wisely, you'll be obeyed cheerfully.</h3 quote>
 
 ---
 
