@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
+<h3 quote align='center'>Thought is the wind, knowledge the sail, and mankind the vessel.</h3 quote>
 
 ---
 
