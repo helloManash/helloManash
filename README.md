@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The Intelligence Committee will also examine present counterintelligence programs for the Department of Energy, the National Laboratories, and the Department of Defense.</h3 quote>
+<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
 
 ---
 
