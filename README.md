@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Global political conditions make a direct American intervention difficult, but President Reagan's messianic and visceral attitude toward the Nicaraguan revolution could mean it will happen as an act of desperation.</h3 quote>
+<h3 quote align='center'>Half a century ago, the amazing courage of Rosa Parks, the visionary leadership of Martin Luther King, and the inspirational actions of the civil rights movement led politicians to write equality into the law and make real the promise of America for all her citizens.</h3 quote>
 
 ---
 
