@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Thought is the wind, knowledge the sail, and mankind the vessel.</h3 quote>
+<h3 quote align='center'>Global political conditions make a direct American intervention difficult, but President Reagan's messianic and visceral attitude toward the Nicaraguan revolution could mean it will happen as an act of desperation.</h3 quote>
 
 ---
 
