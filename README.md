@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My deepest impulses are optimistic, an attitude that seems to me as spiritually necessary and proper as it is intellectually suspect.</h3 quote>
+<h3 quote align='center'>Attitude is more important than the past, than education, than money, than circumstances, than what people do or say.</h3 quote>
 
 ---
 
