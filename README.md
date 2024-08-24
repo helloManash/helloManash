@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Attitude is more important than the past, than education, than money, than circumstances, than what people do or say.</h3 quote>
+<h3 quote align='center'>I also had a mistaken attitude towards certain comrades.</h3 quote>
 
 ---
 
