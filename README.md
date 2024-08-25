@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Rehearsals and this band are two words that don't really go together, kinda like Military Intelligence.</h3 quote>
+<h3 quote align='center'>If you are going to achieve excellence in big things, you develop the habit in little matters.</h3 quote>
 
 ---
 
