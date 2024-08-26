@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Observation more than books and experience more than persons, are the prime educators.</h3 quote>
+<h3 quote align='center'>In our system leadership is by consent, not command.</h3 quote>
 
 ---
 
