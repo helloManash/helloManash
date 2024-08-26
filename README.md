@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Cherish your visions and your dreams as they are the children of your soul, the blueprints of your ultimate achievements.</h3 quote>
+<h3 quote align='center'>Observation more than books and experience more than persons, are the prime educators.</h3 quote>
 
 ---
 
