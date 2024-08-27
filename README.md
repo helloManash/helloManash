@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The employer generally gets the employees he deserves.</h3 quote>
+<h3 quote align='center'>Since September 11th Congress has created the Department of Homeland Security, more than doubled the homeland security budget and implemented a bipartisan overhaul of our intelligence systems.</h3 quote>
 
 ---
 
