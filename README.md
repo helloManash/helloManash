@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In our system leadership is by consent, not command.</h3 quote>
+<h3 quote align='center'>The employer generally gets the employees he deserves.</h3 quote>
 
 ---
 
