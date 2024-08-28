@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Since September 11th Congress has created the Department of Homeland Security, more than doubled the homeland security budget and implemented a bipartisan overhaul of our intelligence systems.</h3 quote>
+<h3 quote align='center'>Because our entire universe is made up of consciousness, we never really experience the universe directly we just experience our consciousness of the universe, our perception of it, so right, our only universe is perception.</h3 quote>
 
 ---
 
