@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Because our entire universe is made up of consciousness, we never really experience the universe directly we just experience our consciousness of the universe, our perception of it, so right, our only universe is perception.</h3 quote>
+<h3 quote align='center'>You may count on Mexico's support, since your commitment to the noblest causes of mankind and your vast experience are and will be invaluable in enabling us, together, to achieve a better world.</h3 quote>
 
 ---
 
