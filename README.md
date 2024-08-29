@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Freedom and democracy are dreams you never give up.</h3 quote>
+<h3 quote align='center'>No bird soars too high if he soars with his own wings.</h3 quote>
 
 ---
 
