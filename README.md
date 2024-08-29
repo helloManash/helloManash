@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You may count on Mexico's support, since your commitment to the noblest causes of mankind and your vast experience are and will be invaluable in enabling us, together, to achieve a better world.</h3 quote>
+<h3 quote align='center'>Freedom and democracy are dreams you never give up.</h3 quote>
 
 ---
 
