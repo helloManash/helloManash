@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>No bird soars too high if he soars with his own wings.</h3 quote>
+<h3 quote align='center'>Success is more attitude then aptitude.</h3 quote>
 
 ---
 
