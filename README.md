@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is more attitude then aptitude.</h3 quote>
+<h3 quote align='center'>There can be no two opinions as to what a highbrow is.</h3 quote>
 
 ---
 
