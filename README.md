@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The best time to frame an answer to the letters of a friend, is the moment you receive them.</h3 quote>
+<h3 quote align='center'>Intelligence recognizes what has happened.</h3 quote>
 
 ---
 
