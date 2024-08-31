@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There can be no two opinions as to what a highbrow is.</h3 quote>
+<h3 quote align='center'>The best time to frame an answer to the letters of a friend, is the moment you receive them.</h3 quote>
 
 ---
 
