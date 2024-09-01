@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Intelligence recognizes what has happened.</h3 quote>
+<h3 quote align='center'>To educate the intelligence is to expand the horizon of its wants and desires.</h3 quote>
 
 ---
 
