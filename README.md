@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership is particularly necessary to ensure ready acceptance of the unfamiliar and that which is contrary to tradition.</h3 quote>
+<h3 quote align='center'>Change your thoughts and you change your world.</h3 quote>
 
 ---
 
