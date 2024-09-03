@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Change your thoughts and you change your world.</h3 quote>
+<h3 quote align='center'>Every time you have to speak, you are auditioning for leadership.</h3 quote>
 
 ---
 
