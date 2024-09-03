@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Every time you have to speak, you are auditioning for leadership.</h3 quote>
+<h3 quote align='center'>I don't have to have faith, I have experience.</h3 quote>
 
 ---
 
