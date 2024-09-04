@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't have to have faith, I have experience.</h3 quote>
+<h3 quote align='center'>Leadership has become a heavy industry.</h3 quote>
 
 ---
 
