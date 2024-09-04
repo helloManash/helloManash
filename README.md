@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership has become a heavy industry.</h3 quote>
+<h3 quote align='center'>What we achieve inwardly will change outer reality.</h3 quote>
 
 ---
 
