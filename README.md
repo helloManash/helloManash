@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What we achieve inwardly will change outer reality.</h3 quote>
+<h3 quote align='center'>In order to be successful against each of these threats, we have to have a presence overseas, work closely not only with our counterparts in the law enforcement community, but also with the intelligence community.</h3 quote>
 
 ---
 
