@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</h3 quote>
+<h3 quote align='center'>Stability is more essential to success than brilliance.</h3 quote>
 
 ---
 
