@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A twenty-one-year-old writer is likely to be inhibited by a lack of usable experience.</h3 quote>
+<h3 quote align='center'>Obama is thoroughly mixed up with all these things he's got.</h3 quote>
 
 ---
 
