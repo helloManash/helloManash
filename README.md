@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Obama is thoroughly mixed up with all these things he's got.</h3 quote>
+<h3 quote align='center'>What was past was past.</h3 quote>
 
 ---
 
