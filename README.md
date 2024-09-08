@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Really you just gotta keep chugging along and keep a positive attitude and get through all the problems.</h3 quote>
+<h3 quote align='center'>That's one of the benefits of working on big budget films.</h3 quote>
 
 ---
 
