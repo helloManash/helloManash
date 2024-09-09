@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dramatic experience is not logical it may be subdued to the kind of coherence that we indicate when we speak, in criticism, of form.</h3 quote>
+<h3 quote align='center'>It's not like I don't have my own wants and dreams anymore - it's just that the kids come first.</h3 quote>
 
 ---
 
