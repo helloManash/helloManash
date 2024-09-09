@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>That's one of the benefits of working on big budget films.</h3 quote>
+<h3 quote align='center'>Dramatic experience is not logical it may be subdued to the kind of coherence that we indicate when we speak, in criticism, of form.</h3 quote>
 
 ---
 
