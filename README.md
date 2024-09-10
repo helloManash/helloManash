@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>One is to ensure that the war fighters and the intelligence analysts get the information that they need when they need it, in a format that's useful to them.</h3 quote>
+<h3 quote align='center'>Britishness is just a way of putting things together and a certain don't care attitude about clothes.</h3 quote>
 
 ---
 
