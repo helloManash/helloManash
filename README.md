@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's not like I don't have my own wants and dreams anymore - it's just that the kids come first.</h3 quote>
+<h3 quote align='center'>One is to ensure that the war fighters and the intelligence analysts get the information that they need when they need it, in a format that's useful to them.</h3 quote>
 
 ---
 
