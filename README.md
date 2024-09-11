@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If I'm dreaming, never let me wake.</h3 quote>
+<h3 quote align='center'>Dream manfully and nobly, and thy dreams shall be prophets.</h3 quote>
 
 ---
 
