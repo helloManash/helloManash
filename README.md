@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dream manfully and nobly, and thy dreams shall be prophets.</h3 quote>
+<h3 quote align='center'>There ambition can cover its enterprises, even to the person himself, under the appearance of principle, it is the most incurable and inflexibl eof passions.</h3 quote>
 
 ---
 
