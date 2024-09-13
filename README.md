@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>At the very outset I want to say how the people of America appreciate the steadfast support of the people of Morocco, the leadership of Morocco in our war against terrorism.</h3 quote>
+<h3 quote align='center'>A life spent in constant labor is a life wasted, save a man be such a fool as to regard a fulsome obituary notice as ample reward.</h3 quote>
 
 ---
 
