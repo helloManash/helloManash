@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A life spent in constant labor is a life wasted, save a man be such a fool as to regard a fulsome obituary notice as ample reward.</h3 quote>
+<h3 quote align='center'>And we're seeing a higher level of consciousness and many more opportunities for people to challenge their present ways of thinking and move into a grander and larger experience of who they really are.</h3 quote>
 
 ---
 
