@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And we're seeing a higher level of consciousness and many more opportunities for people to challenge their present ways of thinking and move into a grander and larger experience of who they really are.</h3 quote>
+<h3 quote align='center'>And I'd say one of the great lessons I've learned over the past couple of decades, from a management perspective, is that really when you come down to it, it really is all about people and all about leadership.</h3 quote>
 
 ---
 
