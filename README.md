@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And I'd say one of the great lessons I've learned over the past couple of decades, from a management perspective, is that really when you come down to it, it really is all about people and all about leadership.</h3 quote>
+<h3 quote align='center'>Dreams are real as long as they last.</h3 quote>
 
 ---
 
