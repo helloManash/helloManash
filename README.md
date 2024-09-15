@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If at first you don't succeed you're running about average.</h3 quote>
+<h3 quote align='center'>I don't think people are fools, and I think they deserve a good attitude and smart entertainment.</h3 quote>
 
 ---
 
