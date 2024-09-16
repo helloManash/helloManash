@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't think people are fools, and I think they deserve a good attitude and smart entertainment.</h3 quote>
+<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
 
 ---
 
