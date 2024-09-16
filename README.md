@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Experience is the name that everyone gives to his mistakes.</h3 quote>
+<h3 quote align='center'>Luck is a dividend of sweat.</h3 quote>
 
 ---
 
