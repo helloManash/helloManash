@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>By making a comeback, I'm changing the attitude of people toward me.</h3 quote>
+<h3 quote align='center'>As the time goes by, you change, your learn new things, your attitude is different.</h3 quote>
 
 ---
 
