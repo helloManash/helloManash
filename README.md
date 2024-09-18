@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>As the time goes by, you change, your learn new things, your attitude is different.</h3 quote>
+<h3 quote align='center'>Leadership does not depend on being right.</h3 quote>
 
 ---
 
