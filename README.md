@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I want to exude strength and intelligence.</h3 quote>
+<h3 quote align='center'>Instead of starting a new nuclear arms race, now is the time to reclaim our Nation's position of leadership on nuclear nonproliferation efforts.</h3 quote>
 
 ---
 
