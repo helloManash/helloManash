@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership does not depend on being right.</h3 quote>
+<h3 quote align='center'>I want to exude strength and intelligence.</h3 quote>
 
 ---
 
