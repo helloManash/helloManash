@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ages of experience have taught humanity that the commitment of a husband and wife to love and to serve one another promotes the welfare of children and the stability of society.</h3 quote>
+<h3 quote align='center'>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</h3 quote>
 
 ---
 
