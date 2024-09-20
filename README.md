@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Instead of starting a new nuclear arms race, now is the time to reclaim our Nation's position of leadership on nuclear nonproliferation efforts.</h3 quote>
+<h3 quote align='center'>Ages of experience have taught humanity that the commitment of a husband and wife to love and to serve one another promotes the welfare of children and the stability of society.</h3 quote>
 
 ---
 
