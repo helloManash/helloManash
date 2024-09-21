@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The pool is terrible, but that doesn't have much to do with my record swims.</h3 quote>
+<h3 quote align='center'>How glorious a greeting the sun gives the mountains!.</h3 quote>
 
 ---
 
