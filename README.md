@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</h3 quote>
+<h3 quote align='center'>The pool is terrible, but that doesn't have much to do with my record swims.</h3 quote>
 
 ---
 
