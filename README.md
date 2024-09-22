@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How glorious a greeting the sun gives the mountains!.</h3 quote>
+<h3 quote align='center'>I remember when I took Quentin Tarantino with me to a very private screening of the documentary 'Roman Polanski: Wanted and Desired,' which shows some of the legal irregularities of his case.</h3 quote>
 
 ---
 
