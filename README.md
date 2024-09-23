@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Without fullness of experience, length of days is nothing.</h3 quote>
+<h3 quote align='center'>If one advances confidently in the direction of his dreams, and endeavors to live the life which he has imagined, he will meet with success unexpected in common hours.</h3 quote>
 
 ---
 
