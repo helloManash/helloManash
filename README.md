@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Even if people do wrong, we're social animals, so what can we do about stopping them doing the same things in future? Saying people are 'bad' or 'evil' is just an unwillingness to engage an unwillingness to try to empathise.</h3 quote>
+<h3 quote align='center'>My ultimate aim is to make euthanasia a positive experience.</h3 quote>
 
 ---
 
