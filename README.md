@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep true to the dreams of your youth.</h3 quote>
+<h3 quote align='center'>Proverbs are short sentences drawn from long experience.</h3 quote>
 
 ---
 
