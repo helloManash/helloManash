@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Proverbs are short sentences drawn from long experience.</h3 quote>
+<h3 quote align='center'>The difference between failure and success is doing a thing nearly right and doing a thing exactly right.</h3 quote>
 
 ---
 
