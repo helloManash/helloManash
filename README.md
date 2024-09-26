@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In our dreams we are always young.</h3 quote>
+<h3 quote align='center'>I think everyone dreams of that nice romantic wedding.</h3 quote>
 
 ---
 
