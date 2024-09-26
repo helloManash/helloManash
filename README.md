@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The difference between failure and success is doing a thing nearly right and doing a thing exactly right.</h3 quote>
+<h3 quote align='center'>In our dreams we are always young.</h3 quote>
 
 ---
 
