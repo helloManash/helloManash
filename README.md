@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You have all the reason in the world to achieve your grandest dreams.</h3 quote>
+<h3 quote align='center'>No man was ever so completely skilled in the conduct of life, as not to receive new information from age and experience.</h3 quote>
 
 ---
 
