@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There's a good deal in common between the mind's eye and the TV screen, and though the TV set has all too often been the boobtube, it could be, it can be, the box of dreams.</h3 quote>
+<h3 quote align='center'>If I could sell 500 million records every time, it would be great.</h3 quote>
 
 ---
 
