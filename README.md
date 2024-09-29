@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If I could sell 500 million records every time, it would be great.</h3 quote>
+<h3 quote align='center'>I'm not a natural leader.</h3 quote>
 
 ---
 
