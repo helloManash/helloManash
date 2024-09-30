@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership that exploits and sacrifices young people on the altar of its goals is nothing more than raw, demonic power.</h3 quote>
+<h3 quote align='center'>If you started in New York you were dealing with the biggest guys in the world.</h3 quote>
 
 ---
 
