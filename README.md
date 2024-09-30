@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you started in New York you were dealing with the biggest guys in the world.</h3 quote>
+<h3 quote align='center'>Gratitude is the fairest blossom which springs from the soul.</h3 quote>
 
 ---
 
