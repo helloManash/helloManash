@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Gratitude is the fairest blossom which springs from the soul.</h3 quote>
+<h3 quote align='center'>George Tenet has been the director of central intelligence since 1997, time enough to have changed the Agency's culture.</h3 quote>
 
 ---
 
