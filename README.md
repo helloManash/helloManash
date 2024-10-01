@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>George Tenet has been the director of central intelligence since 1997, time enough to have changed the Agency's culture.</h3 quote>
+<h3 quote align='center'>Let us change our traditional attitude to the construction of programs.</h3 quote>
 
 ---
 
