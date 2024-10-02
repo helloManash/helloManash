@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Let us change our traditional attitude to the construction of programs.</h3 quote>
+<h3 quote align='center'>Men must live and create.</h3 quote>
 
 ---
 
