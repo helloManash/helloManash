@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We have an incredible warrior class in this country - people in law enforcement, intelligence - and I thank God every night we have them standing fast to protect us from the tremendous amount of evil that exists in the world.</h3 quote>
+<h3 quote align='center'>Everyone here has the sense that right now is one of those moments when we are influencing the future.</h3 quote>
 
 ---
 
