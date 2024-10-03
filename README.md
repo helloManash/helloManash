@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>They say military have the so-called 'secret intelligence' - this amount of intelligence must be very secret, since I've never seen any intelligent military person, nor I have seen any sense in the bloody stupid wars.</h3 quote>
+<h3 quote align='center'>We have an incredible warrior class in this country - people in law enforcement, intelligence - and I thank God every night we have them standing fast to protect us from the tremendous amount of evil that exists in the world.</h3 quote>
 
 ---
 
