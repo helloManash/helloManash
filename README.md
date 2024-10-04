@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Everyone here has the sense that right now is one of those moments when we are influencing the future.</h3 quote>
+<h3 quote align='center'>The greatest discovery of my generation is that man can alter his life simply by altering his attitude of mind.</h3 quote>
 
 ---
 
