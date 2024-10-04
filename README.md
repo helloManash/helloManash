@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The greatest discovery of my generation is that man can alter his life simply by altering his attitude of mind.</h3 quote>
+<h3 quote align='center'>I want my boys to have an understanding of people's emotions, their insecurities, people's distress, and their hopes and dreams.</h3 quote>
 
 ---
 
