@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Good judgment comes from experience, and a lot of that comes from bad judgment.</h3 quote>
+<h3 quote align='center'>All ambitions are lawful except those which climb upward on the miseries or credulities of mankind.</h3 quote>
 
 ---
 
