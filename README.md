@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I want my boys to have an understanding of people's emotions, their insecurities, people's distress, and their hopes and dreams.</h3 quote>
+<h3 quote align='center'>Good judgment comes from experience, and a lot of that comes from bad judgment.</h3 quote>
 
 ---
 
