@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How far high failure overleaps the bounds of low success.</h3 quote>
+<h3 quote align='center'>If you sit in a position where decisions that you take would have a serious effect on people, you can't ignore a lot of experience around the world which says this drug has these negative effects.</h3 quote>
 
 ---
 
