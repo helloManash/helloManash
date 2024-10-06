@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>All ambitions are lawful except those which climb upward on the miseries or credulities of mankind.</h3 quote>
+<h3 quote align='center'>How far high failure overleaps the bounds of low success.</h3 quote>
 
 ---
 
