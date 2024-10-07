@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you sit in a position where decisions that you take would have a serious effect on people, you can't ignore a lot of experience around the world which says this drug has these negative effects.</h3 quote>
+<h3 quote align='center'>Where ambition can cover its enterprises, even to the person himself, under the appearance of principle, it is the most incurable and inflexible of passions.</h3 quote>
 
 ---
 
