@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The current leadership of the Labor party react to the idea that working-class students might study the subjects they studied with the same horror that the Earl of Grantham showed when a chauffeur wanted to marry his daughter.</h3 quote>
+<h3 quote align='center'>Take control of your consistent emotions and begin to consciously and deliberately reshape your daily experience of life.</h3 quote>
 
 ---
 
