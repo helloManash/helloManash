@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Take control of your consistent emotions and begin to consciously and deliberately reshape your daily experience of life.</h3 quote>
+<h3 quote align='center'>My kids will grow up in a house knowing that it's perfectly normal for two men to be in love, it's perfectly normal for two women to be in love.</h3 quote>
 
 ---
 
