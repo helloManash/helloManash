@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My kids will grow up in a house knowing that it's perfectly normal for two men to be in love, it's perfectly normal for two women to be in love.</h3 quote>
+<h3 quote align='center'>My denial and irresponsible attitude about asthma put me at great risk and caused me so much needless suffering.</h3 quote>
 
 ---
 
