@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My denial and irresponsible attitude about asthma put me at great risk and caused me so much needless suffering.</h3 quote>
+<h3 quote align='center'>There are whole precincts of voters in this country whose united intelligence does not equal that of one representative American woman.</h3 quote>
 
 ---
 
