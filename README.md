@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are whole precincts of voters in this country whose united intelligence does not equal that of one representative American woman.</h3 quote>
+<h3 quote align='center'>Leaders must be close enough to relate to others, but far enough ahead to motivate them.</h3 quote>
 
 ---
 
