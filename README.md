@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leaders must be close enough to relate to others, but far enough ahead to motivate them.</h3 quote>
+<h3 quote align='center'>Getting in touch with your true self must be your first priority.</h3 quote>
 
 ---
 
