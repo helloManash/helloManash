@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is not enough to aim, you must hit.</h3 quote>
+<h3 quote align='center'>If we're picking people to draw out of their own conscience and experience a 'new' Constitution, we should not look principally for good lawyers.</h3 quote>
 
 ---
 
