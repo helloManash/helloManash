@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Getting in touch with your true self must be your first priority.</h3 quote>
+<h3 quote align='center'>It is not enough to aim, you must hit.</h3 quote>
 
 ---
 
