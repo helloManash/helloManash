@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I am leaving because I have to fight simultaneously a potential recurrence of cancer the Democratic leadership, a health care bill that's going to destroy this country, my opposition to it and a belief that my party has become what it became - what it campaigned against.</h3 quote>
+<h3 quote align='center'>I've developed a huge regard for Toyota for its environmental awareness, for its immense commitment to research and development in this field, and for its leadership in developing hybrids which others are now following.</h3 quote>
 
 ---
 
