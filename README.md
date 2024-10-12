@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If we're picking people to draw out of their own conscience and experience a 'new' Constitution, we should not look principally for good lawyers.</h3 quote>
+<h3 quote align='center'>I am leaving because I have to fight simultaneously a potential recurrence of cancer the Democratic leadership, a health care bill that's going to destroy this country, my opposition to it and a belief that my party has become what it became - what it campaigned against.</h3 quote>
 
 ---
 
