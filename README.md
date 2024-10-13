@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It is in your moments of decision that your destiny is shaped.</h3 quote>
+<h3 quote align='center'>I'd say it's been my biggest problem all my life.</h3 quote>
 
 ---
 
