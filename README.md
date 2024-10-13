@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I've developed a huge regard for Toyota for its environmental awareness, for its immense commitment to research and development in this field, and for its leadership in developing hybrids which others are now following.</h3 quote>
+<h3 quote align='center'>It is in your moments of decision that your destiny is shaped.</h3 quote>
 
 ---
 
