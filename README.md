@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We need safe communities that are free from methamphetamine and a federal commitment to stand next to state leadership and law enforcement in the fight against this epidemic.</h3 quote>
+<h3 quote align='center'>The tallest trees are most in the power of the winds, and ambitious men of the blasts of fortune.</h3 quote>
 
 ---
 
