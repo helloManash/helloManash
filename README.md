@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'd say it's been my biggest problem all my life.</h3 quote>
+<h3 quote align='center'>We need safe communities that are free from methamphetamine and a federal commitment to stand next to state leadership and law enforcement in the fight against this epidemic.</h3 quote>
 
 ---
 
