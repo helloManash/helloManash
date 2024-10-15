@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The townspeople outside the reservations had a very superior attitude toward Indians, which was kind of funny, because they weren't very wealthy they were on the fringes of society themselves.</h3 quote>
+<h3 quote align='center'>It would be incredibly presumptuous and self-serving of me to believe that Facebook was the end of history.</h3 quote>
 
 ---
 
