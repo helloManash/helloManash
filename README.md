@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It would be incredibly presumptuous and self-serving of me to believe that Facebook was the end of history.</h3 quote>
+<h3 quote align='center'>I think being a parent is the most challenging thing you do.</h3 quote>
 
 ---
 
