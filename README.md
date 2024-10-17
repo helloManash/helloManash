@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The more that social democracy develops, grows, and becomes stronger, the more the enlightened masses of workers will take their own destinies, the leadership of their movement, and the determination of its direction into their own hands.</h3 quote>
+<h3 quote align='center'>It is sad that the Republican leadership is not as interested as they say they are in protecting the institution of marriage as they are in waging a campaign to divide and distract the American people from the real issues that need to be addressed.</h3 quote>
 
 ---
 
