@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I have amazing friends who have led inspirational lives.</h3 quote>
+<h3 quote align='center'>Foolishness is rarely a matter of lack of intelligence or even lack of information.</h3 quote>
 
 ---
 
