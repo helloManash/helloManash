@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>As long as the opposition believes the world will stand with Ukraine's democrat reformers, they will have the leverage and the courage to establish a legitimate republic under the leadership of Viktor Yushchenko.</h3 quote>
+<h3 quote align='center'>Doing nothing while the middle class is hurting.</h3 quote>
 
 ---
 
