@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Doing nothing while the middle class is hurting.</h3 quote>
+<h3 quote align='center'>When I went on to write my next book, Working With Emotional Intelligence, I wanted to make a business case that the best performers were those people strong in these skills.</h3 quote>
 
 ---
 
