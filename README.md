@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men will never establish any equality with which they can be contented.</h3 quote>
+<h3 quote align='center'>The nicest thing about standards is that there are so many of them to choose from.</h3 quote>
 
 ---
 
