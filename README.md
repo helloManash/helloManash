@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My father respected and admired my mother and was a person who was always standing by my side, encouraging me to do more and believed in my capacity.</h3 quote>
+<h3 quote align='center'>First, I have the privilege of being Chairman of the Senate Intelligence Committee.</h3 quote>
 
 ---
 
