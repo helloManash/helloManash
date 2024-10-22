@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>First, I have the privilege of being Chairman of the Senate Intelligence Committee.</h3 quote>
+<h3 quote align='center'>An attitude to life which seeks fulfillment in the single-minded pursuit of wealth - in short, materialism - does not fit into this world, because it contains within itself no limiting principle, while the environment in which it is placed is strictly limited.</h3 quote>
 
 ---
 
