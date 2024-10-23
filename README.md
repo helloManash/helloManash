@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Through the years of experience I have found that air offers less resistance than dirt.</h3 quote>
+<h3 quote align='center'>Dream lofty dreams, and as you dream, so you shall become.</h3 quote>
 
 ---
 
