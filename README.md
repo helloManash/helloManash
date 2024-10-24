@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dream lofty dreams, and as you dream, so you shall become.</h3 quote>
+<h3 quote align='center'>I've never dreamed of a story idea.</h3 quote>
 
 ---
 
