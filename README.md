@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Literature transmits incontrovertible condensed experience.</h3 quote>
+<h3 quote align='center'>The Leadership Training Institute of America trains and equips young men and women to be leaders with high standards of personal morality and integrity.</h3 quote>
 
 ---
 
