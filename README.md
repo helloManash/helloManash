@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In any case, decisions on troop levels in the American system of government are not made by any general or set of generals but by the civilian leadership of the war effort.</h3 quote>
+<h3 quote align='center'>Literature transmits incontrovertible condensed experience.</h3 quote>
 
 ---
 
