@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>No rational argument will have a rational effect on a man who does not want to adopt a rational attitude.</h3 quote>
+<h3 quote align='center'>The democratic idealist is prone to make light of the whole question of standards and leadership because of his unbounded faith in the plain people.</h3 quote>
 
 ---
 
