@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The democratic idealist is prone to make light of the whole question of standards and leadership because of his unbounded faith in the plain people.</h3 quote>
+<h3 quote align='center'>Stupidity is infinitely more fascinating that intelligence.</h3 quote>
 
 ---
 
