@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Our men and women in uniform deserve the best intelligence possible to help them protect America.</h3 quote>
+<h3 quote align='center'>Nurture your minds with great thoughts.</h3 quote>
 
 ---
 
