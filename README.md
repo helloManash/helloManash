@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nurture your minds with great thoughts.</h3 quote>
+<h3 quote align='center'>Overall, the challenge of leadership is both moral and one of developing the characteristics that make us respected by one another.</h3 quote>
 
 ---
 
