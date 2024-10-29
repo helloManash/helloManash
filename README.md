@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Intelligence is enormously sexy.</h3 quote>
+<h3 quote align='center'>Although as a sailor I despised politics - for I loved my sailor's life and still love it today - conditions forced me to take up a definite attitude towards political problems.</h3 quote>
 
 ---
 
