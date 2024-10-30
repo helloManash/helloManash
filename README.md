@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Always keep that happy attitude.</h3 quote>
+<h3 quote align='center'>If a cat does something, we call it instinct if we do the same thing, for the same reason, we call it intelligence.</h3 quote>
 
 ---
 
