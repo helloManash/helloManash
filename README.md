@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If you can attribute your success entirely to your own mental effort, to your own attitude, to some spiritual essence that you have that is better than other people's, then that must feel pretty good.</h3 quote>
+<h3 quote align='center'>There's a good deal in common between the mind's eye and the TV screen, and though the TV set has all too often been the boobtube, it could be, it can be, the box of dreams.</h3 quote>
 
 ---
 
