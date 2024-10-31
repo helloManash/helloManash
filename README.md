@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If a cat does something, we call it instinct if we do the same thing, for the same reason, we call it intelligence.</h3 quote>
+<h3 quote align='center'>If you can attribute your success entirely to your own mental effort, to your own attitude, to some spiritual essence that you have that is better than other people's, then that must feel pretty good.</h3 quote>
 
 ---
 
