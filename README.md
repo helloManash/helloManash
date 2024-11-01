@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Work is a substitute religious experience for many workaholics.</h3 quote>
+<h3 quote align='center'>Among my activities was membership in the Boy Scouts I rose each year through the ranks, eventually achieving the rank of Eagle Scout and undertaking leadership roles in the organization.</h3 quote>
 
 ---
 
