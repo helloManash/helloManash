@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Among my activities was membership in the Boy Scouts I rose each year through the ranks, eventually achieving the rank of Eagle Scout and undertaking leadership roles in the organization.</h3 quote>
+<h3 quote align='center'>There ambition can cover its enterprises, even to the person himself, under the appearance of principle, it is the most incurable and inflexibl eof passions.</h3 quote>
 
 ---
 
