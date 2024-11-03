@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I think being a parent is the most challenging thing you do.</h3 quote>
+<h3 quote align='center'>My wife is beginning to instruct me on means to retrieve dreams, and bit by bit, it does seem to be working.</h3 quote>
 
 ---
 
