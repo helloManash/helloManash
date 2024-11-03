@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men are so constituted that everybody undertakes what he sees another successful in, whether he has aptitude for it or not.</h3 quote>
+<h3 quote align='center'>I think being a parent is the most challenging thing you do.</h3 quote>
 
 ---
 
