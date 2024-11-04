@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And the attitude of faith is the very opposite of clinging to belief, of holding on.</h3 quote>
+<h3 quote align='center'>Myths are public dreams, dreams are private myths.</h3 quote>
 
 ---
 
