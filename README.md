@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My wife is beginning to instruct me on means to retrieve dreams, and bit by bit, it does seem to be working.</h3 quote>
+<h3 quote align='center'>And the attitude of faith is the very opposite of clinging to belief, of holding on.</h3 quote>
 
 ---
 
