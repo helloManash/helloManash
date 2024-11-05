@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Myths are public dreams, dreams are private myths.</h3 quote>
+<h3 quote align='center'>If I could have been a marine biologist I would have, but I didn't have that kind of intelligence.</h3 quote>
 
 ---
 
