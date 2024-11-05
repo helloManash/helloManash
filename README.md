@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If I could have been a marine biologist I would have, but I didn't have that kind of intelligence.</h3 quote>
+<h3 quote align='center'>My work is to reach people with ideas, hopes, dreams, encouragement, insight, and revelation.</h3 quote>
 
 ---
 
