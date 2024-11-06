@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>My work is to reach people with ideas, hopes, dreams, encouragement, insight, and revelation.</h3 quote>
+<h3 quote align='center'>But by providing the background picture - the universal situational awareness that we desire - by showing the anomalies, the Space-Based Radar will change the nature of how we do our analysis and our intelligence.</h3 quote>
 
 ---
 
