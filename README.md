@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I never paint dreams or nightmares.</h3 quote>
+<h3 quote align='center'>You'll be much more successful if you follow your dreams and follow your passions.</h3 quote>
 
 ---
 
