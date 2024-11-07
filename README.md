@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The spectacles of experience through them you will see clearly a second time.</h3 quote>
+<h3 quote align='center'>I never paint dreams or nightmares.</h3 quote>
 
 ---
 
