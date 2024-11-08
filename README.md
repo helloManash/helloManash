@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Whether born from experience or inherent physiological or cultural differences our gender and national origins may and will make a difference in our judging.</h3 quote>
+<h3 quote align='center'>Design is about point of view, and there should be some sort of woman or lifestyle or attitude in one's head as a designer.</h3 quote>
 
 ---
 
