@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You'll be much more successful if you follow your dreams and follow your passions.</h3 quote>
+<h3 quote align='center'>Whether born from experience or inherent physiological or cultural differences our gender and national origins may and will make a difference in our judging.</h3 quote>
 
 ---
 
