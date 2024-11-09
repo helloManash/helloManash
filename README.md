@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
+<h3 quote align='center'>Character matters leadership descends from character.</h3 quote>
 
 ---
 
