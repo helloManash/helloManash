@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Design is about point of view, and there should be some sort of woman or lifestyle or attitude in one's head as a designer.</h3 quote>
+<h3 quote align='center'>Keep all special thoughts and memories for lifetimes to come.</h3 quote>
 
 ---
 
