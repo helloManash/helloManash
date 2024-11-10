@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ability is what you're capable of doing.</h3 quote>
+<h3 quote align='center'>Love and desire are the spirit's wings to great deeds.</h3 quote>
 
 ---
 
