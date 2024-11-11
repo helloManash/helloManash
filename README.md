@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Love and desire are the spirit's wings to great deeds.</h3 quote>
+<h3 quote align='center'>Nothing has caused the human race so much trouble as intelligence.</h3 quote>
 
 ---
 
