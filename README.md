@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nothing has caused the human race so much trouble as intelligence.</h3 quote>
+<h3 quote align='center'>Being in love is the only transcendent experience.</h3 quote>
 
 ---
 
