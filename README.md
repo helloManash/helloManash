@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>When I first left university, I thought about going into the private sector.</h3 quote>
+<h3 quote align='center'>Some folks can look so busy doing nothin' that they seem indispensable.</h3 quote>
 
 ---
 
