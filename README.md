@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Being in love is the only transcendent experience.</h3 quote>
+<h3 quote align='center'>When I first left university, I thought about going into the private sector.</h3 quote>
 
 ---
 
