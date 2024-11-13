@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Some folks can look so busy doing nothin' that they seem indispensable.</h3 quote>
+<h3 quote align='center'>Education is when you read the fine print.</h3 quote>
 
 ---
 
