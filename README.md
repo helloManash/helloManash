@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If it were not for hopes, the heart would break.</h3 quote>
+<h3 quote align='center'>We will have to continue to improve our human intelligence system-something that was, unfortunately, lacking in the years which led up to September 11.</h3 quote>
 
 ---
 
