@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We will have to continue to improve our human intelligence system-something that was, unfortunately, lacking in the years which led up to September 11.</h3 quote>
+<h3 quote align='center'>What reader wants to be told what attitude to strike?.</h3 quote>
 
 ---
 
