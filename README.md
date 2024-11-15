@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>What reader wants to be told what attitude to strike?.</h3 quote>
+<h3 quote align='center'>There are many talented people who haven't fulfilled their dreams because they over thought it, or they were too cautious, and were unwilling to make the leap of faith.</h3 quote>
 
 ---
 
