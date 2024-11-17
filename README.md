@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I began even as a boy to realize how wide the world can be for a man of free intelligence.</h3 quote>
+<h3 quote align='center'>It's not as if our party has a leadership campaign underway.</h3 quote>
 
 ---
 
