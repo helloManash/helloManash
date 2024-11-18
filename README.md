@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It's not as if our party has a leadership campaign underway.</h3 quote>
+<h3 quote align='center'>Was it only by dreaming or writing that I could find out what I thought?.</h3 quote>
 
 ---
 
