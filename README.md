@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Clarity affords focus.</h3 quote>
+<h3 quote align='center'>I can't comprehend that I'm in the film of 'Les Miserables.</h3 quote>
 
 ---
 
