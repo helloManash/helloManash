@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I can't comprehend that I'm in the film of 'Les Miserables.</h3 quote>
+<h3 quote align='center'>There are three ways a man can be ruined: women,gambling, and farming.</h3 quote>
 
 ---
 
