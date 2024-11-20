@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are three ways a man can be ruined: women,gambling, and farming.</h3 quote>
+<h3 quote align='center'>A proverb is a short sentence based on long experience.</h3 quote>
 
 ---
 
