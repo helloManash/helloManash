@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A proverb is a short sentence based on long experience.</h3 quote>
+<h3 quote align='center'>The noblest spirit is most strongly attracted by thelove of glory.</h3 quote>
 
 ---
 
