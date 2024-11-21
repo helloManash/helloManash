@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The noblest spirit is most strongly attracted by thelove of glory.</h3 quote>
+<h3 quote align='center'>If the probability of success is not almost one, then it is damn near zero.</h3 quote>
 
 ---
 
