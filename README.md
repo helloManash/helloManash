@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>If the probability of success is not almost one, then it is damn near zero.</h3 quote>
+<h3 quote align='center'>A #2 pencil and a dream can take you anywhere.</h3 quote>
 
 ---
 
