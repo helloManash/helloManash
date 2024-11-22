@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A #2 pencil and a dream can take you anywhere.</h3 quote>
+<h3 quote align='center'>At some time in the life cycle of virtually every organization, its ability to succeed in spite of itself runs out.</h3 quote>
 
 ---
 
