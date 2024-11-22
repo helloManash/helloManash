@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>At some time in the life cycle of virtually every organization, its ability to succeed in spite of itself runs out.</h3 quote>
+<h3 quote align='center'>A German immersed in any civilization different from his own loses a weight equivalent in volume to the amount of intelligence he displaces.</h3 quote>
 
 ---
 
