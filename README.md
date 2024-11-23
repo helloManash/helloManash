@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Only one thing can conquer war - that attitude of mind which can see nothing in war but destruction and annihilation.</h3 quote>
+<h3 quote align='center'>You have to have your heart in the business and the business in your heart.</h3 quote>
 
 ---
 
