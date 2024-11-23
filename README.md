@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A German immersed in any civilization different from his own loses a weight equivalent in volume to the amount of intelligence he displaces.</h3 quote>
+<h3 quote align='center'>Only one thing can conquer war - that attitude of mind which can see nothing in war but destruction and annihilation.</h3 quote>
 
 ---
 
