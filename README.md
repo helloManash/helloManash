@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I don't think people are fools, and I think they deserve a good attitude and smart entertainment.</h3 quote>
+<h3 quote align='center'>Believe you can and you're halfway there.</h3 quote>
 
 ---
 
