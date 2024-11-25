@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Believe you can and you're halfway there.</h3 quote>
+<h3 quote align='center'>We live in a country that used to have a can-do attitude, and now we have a 'what-can-you-do-for-me?' attitude, and what I try to do is find ways that we can develop common ground.</h3 quote>
 
 ---
 
