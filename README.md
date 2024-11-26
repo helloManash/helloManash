@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>And the attitude of faith is the very opposite of clinging to belief, of holding on.</h3 quote>
+<h3 quote align='center'>Under the leadership of this President, the state of the union is not strong.</h3 quote>
 
 ---
 
