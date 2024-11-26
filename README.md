@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Under the leadership of this President, the state of the union is not strong.</h3 quote>
+<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
 
 ---
 
