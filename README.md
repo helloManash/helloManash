@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The men who succeed are the efficient few.</h3 quote>
+<h3 quote align='center'>At times I experience hardship in trying to find the proper point of balance between traditional things and my own personality.</h3 quote>
 
 ---
 
