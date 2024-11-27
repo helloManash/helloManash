@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>At times I experience hardship in trying to find the proper point of balance between traditional things and my own personality.</h3 quote>
+<h3 quote align='center'>Take the attitude of a student, never be too big to ask questions, never know too much to learn something new.</h3 quote>
 
 ---
 
