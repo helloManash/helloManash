@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Great hopes make great men.</h3 quote>
+<h3 quote align='center'>Intelligence must follow faith, never precede it, and never destroy it.</h3 quote>
 
 ---
 
