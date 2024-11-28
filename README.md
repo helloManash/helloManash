@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Take the attitude of a student, never be too big to ask questions, never know too much to learn something new.</h3 quote>
+<h3 quote align='center'>Great hopes make great men.</h3 quote>
 
 ---
 
