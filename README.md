@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Intelligence must follow faith, never precede it, and never destroy it.</h3 quote>
+<h3 quote align='center'>I want to deploy the leadership to meet the challenges that face us and to restore America's greatness.</h3 quote>
 
 ---
 
