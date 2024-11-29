@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I want to deploy the leadership to meet the challenges that face us and to restore America's greatness.</h3 quote>
+<h3 quote align='center'>This also turned out to be negative, so there is no material in the Central Intelligence Agency, either in the records or in the mind of any of the individuals, that there was any contact had or even contemplated with him.</h3 quote>
 
 ---
 
