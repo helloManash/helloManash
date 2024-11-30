@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Try not to become a man of success but rather try to become a man of value.</h3 quote>
+<h3 quote align='center'>Men will never establish any equality with which they can be contented.</h3 quote>
 
 ---
 
