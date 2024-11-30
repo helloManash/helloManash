@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>This also turned out to be negative, so there is no material in the Central Intelligence Agency, either in the records or in the mind of any of the individuals, that there was any contact had or even contemplated with him.</h3 quote>
+<h3 quote align='center'>Try not to become a man of success but rather try to become a man of value.</h3 quote>
 
 ---
 
