@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dreams have only the pigmentation of fact.</h3 quote>
+<h3 quote align='center'>Success is one unpardonable sin against one's fellows.</h3 quote>
 
 ---
 
