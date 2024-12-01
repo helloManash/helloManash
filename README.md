@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Men will never establish any equality with which they can be contented.</h3 quote>
+<h3 quote align='center'>Dreams have only the pigmentation of fact.</h3 quote>
 
 ---
 
