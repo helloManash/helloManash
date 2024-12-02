@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success is one unpardonable sin against one's fellows.</h3 quote>
+<h3 quote align='center'>The only way to succeed is to make people hate you.</h3 quote>
 
 ---
 
