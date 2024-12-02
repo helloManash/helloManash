@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The only way to succeed is to make people hate you.</h3 quote>
+<h3 quote align='center'>I just really think every job I do, I get this gypsy attitude to money.</h3 quote>
 
 ---
 
