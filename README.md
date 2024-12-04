@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Hollywood has always been a cage.</h3 quote>
+<h3 quote align='center'>Show me your hands.</h3 quote>
 
 ---
 
