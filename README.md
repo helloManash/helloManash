@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Show me your hands.</h3 quote>
+<h3 quote align='center'>Ever since Israel has been a nation the United States has provided the leadership.</h3 quote>
 
 ---
 
