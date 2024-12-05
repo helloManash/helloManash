@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Ever since Israel has been a nation the United States has provided the leadership.</h3 quote>
+<h3 quote align='center'>There are a lot of things that are personally uncomfortable to show, especially me without makeup and completely bloated or crying.</h3 quote>
 
 ---
 
