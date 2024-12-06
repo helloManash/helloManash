@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How glorious a greeting the sun gives the mountains!.</h3 quote>
+<h3 quote align='center'>Dreams seem to have a will of their own.</h3 quote>
 
 ---
 
