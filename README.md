@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You know, as director of the CIA, I got an awful lot of intelligence about all the horrible things that could go on across the world.</h3 quote>
+<h3 quote align='center'>Hold fast to dreams, for if dreams die, life is a broken-winged bird that cannot fly.</h3 quote>
 
 ---
 
