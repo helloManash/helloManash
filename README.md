@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Believe in love.</h3 quote>
+<h3 quote align='center'>You're only as good as the people you hire.</h3 quote>
 
 ---
 
