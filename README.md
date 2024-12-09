@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I dread success.</h3 quote>
+<h3 quote align='center'>Believe in love.</h3 quote>
 
 ---
 
