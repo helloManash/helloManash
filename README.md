@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You're only as good as the people you hire.</h3 quote>
+<h3 quote align='center'>There are a lot of movies I'd like to throw away.</h3 quote>
 
 ---
 
