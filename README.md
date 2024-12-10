@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>There are a lot of movies I'd like to throw away.</h3 quote>
+<h3 quote align='center'>In Fame's temple there is always a niche to be found for rich dunces, importunate scoundrels or successful butchers of the human race.</h3 quote>
 
 ---
 
