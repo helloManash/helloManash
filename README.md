@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I have amazing friends who have led inspirational lives.</h3 quote>
+<h3 quote align='center'>The traditional Christian attitude toward human personality was that human nature was essentially good and that it was formed and modified by social pressures and training.</h3 quote>
 
 ---
 
