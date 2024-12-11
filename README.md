@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In Fame's temple there is always a niche to be found for rich dunces, importunate scoundrels or successful butchers of the human race.</h3 quote>
+<h3 quote align='center'>I have amazing friends who have led inspirational lives.</h3 quote>
 
 ---
 
