@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>It was the experience of mystery - even if mixed with fear - that engendered religion.</h3 quote>
+<h3 quote align='center'>Improving our national intelligence capabilities should remain a top priority and a continual process.</h3 quote>
 
 ---
 
