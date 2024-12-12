@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The traditional Christian attitude toward human personality was that human nature was essentially good and that it was formed and modified by social pressures and training.</h3 quote>
+<h3 quote align='center'>It was the experience of mystery - even if mixed with fear - that engendered religion.</h3 quote>
 
 ---
 
