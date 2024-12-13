@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The one thing that the President can do is to establish a real energy independence plan.</h3 quote>
+<h3 quote align='center'>No man likes to have his intelligence or good faith questioned, especially if he has doubts about it himself.</h3 quote>
 
 ---
 
