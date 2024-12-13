@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Improving our national intelligence capabilities should remain a top priority and a continual process.</h3 quote>
+<h3 quote align='center'>The one thing that the President can do is to establish a real energy independence plan.</h3 quote>
 
 ---
 
