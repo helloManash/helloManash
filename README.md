@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>In my professional work with the Agency, by the late '70s, I had come to question the value of a great deal of what we were doing, in terms of the intelligence agency's impact on American policy.</h3 quote>
+<h3 quote align='center'>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</h3 quote>
 
 ---
 
