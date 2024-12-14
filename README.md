@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>No man likes to have his intelligence or good faith questioned, especially if he has doubts about it himself.</h3 quote>
+<h3 quote align='center'>In my professional work with the Agency, by the late '70s, I had come to question the value of a great deal of what we were doing, in terms of the intelligence agency's impact on American policy.</h3 quote>
 
 ---
 
