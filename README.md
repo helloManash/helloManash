@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How do you nurture a positive attitude when all the statistics say you're a dead man? You go to work.</h3 quote>
+<h3 quote align='center'>The Germans certainly - the intelligence service believed that there were WMD.</h3 quote>
 
 ---
 
