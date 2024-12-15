@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The Germans certainly - the intelligence service believed that there were WMD.</h3 quote>
+<h3 quote align='center'>We can't help everyone, but everyone can help someone.</h3 quote>
 
 ---
 
