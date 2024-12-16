@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>You don't look out there for God, something in the sky, you look in you.</h3 quote>
+<h3 quote align='center'>A functioning, robust democracy requires a healthy educated, participatory followership, and an educated, morally grounded leadership.</h3 quote>
 
 ---
 
