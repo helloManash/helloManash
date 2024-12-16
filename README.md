@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We can't help everyone, but everyone can help someone.</h3 quote>
+<h3 quote align='center'>You don't look out there for God, something in the sky, you look in you.</h3 quote>
 
 ---
 
