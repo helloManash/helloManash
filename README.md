@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>How easy to be amiable in the midst of happiness and success.</h3 quote>
+<h3 quote align='center'>I would wish for any one of my colleagues to have the experience of working with Martin Scorsese once in their lifetime.</h3 quote>
 
 ---
 
