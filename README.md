@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A functioning, robust democracy requires a healthy educated, participatory followership, and an educated, morally grounded leadership.</h3 quote>
+<h3 quote align='center'>How easy to be amiable in the midst of happiness and success.</h3 quote>
 
 ---
 
