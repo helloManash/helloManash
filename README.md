@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I would wish for any one of my colleagues to have the experience of working with Martin Scorsese once in their lifetime.</h3 quote>
+<h3 quote align='center'>The first man gets the oyster, the second man gets the shell.</h3 quote>
 
 ---
 
