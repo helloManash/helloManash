@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The first man gets the oyster, the second man gets the shell.</h3 quote>
+<h3 quote align='center'>One of the greatest moments in anybody's developing experience is when he no longer tries to hide from himself but determines to get acquainted with himself as he really is.</h3 quote>
 
 ---
 
