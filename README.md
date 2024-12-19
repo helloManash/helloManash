@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>One of the greatest moments in anybody's developing experience is when he no longer tries to hide from himself but determines to get acquainted with himself as he really is.</h3 quote>
+<h3 quote align='center'>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</h3 quote>
 
 ---
 
