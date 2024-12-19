@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>A positive attitude is something everyone can work on, and everyone can learn how to employ it.</h3 quote>
+<h3 quote align='center'>Success, as I see it, is a result, not a goal.</h3 quote>
 
 ---
 
