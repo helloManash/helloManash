@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The noblest spirit is most strongly attracted by thelove of glory.</h3 quote>
+<h3 quote align='center'>I will not get very far with this attitude.</h3 quote>
 
 ---
 
