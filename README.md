@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Success, as I see it, is a result, not a goal.</h3 quote>
+<h3 quote align='center'>The noblest spirit is most strongly attracted by thelove of glory.</h3 quote>
 
 ---
 
