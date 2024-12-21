@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Leadership involves finding a parade and getting in front of it.</h3 quote>
+<h3 quote align='center'>We used to talk about wanting to get some money, but that's when hip-hop was based on your dreams and your fantasy.</h3 quote>
 
 ---
 
