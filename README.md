@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I will not get very far with this attitude.</h3 quote>
+<h3 quote align='center'>Leadership involves finding a parade and getting in front of it.</h3 quote>
 
 ---
 
