@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'm not a good shot, but I shoot often.</h3 quote>
+<h3 quote align='center'>I'm just part of a tradition of people who aren't pleased.</h3 quote>
 
 ---
 
