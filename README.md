@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We used to talk about wanting to get some money, but that's when hip-hop was based on your dreams and your fantasy.</h3 quote>
+<h3 quote align='center'>I'm not a good shot, but I shoot often.</h3 quote>
 
 ---
 
