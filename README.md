@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Dreams take you beyond what you think you can do in life.</h3 quote>
+<h3 quote align='center'>Every charitable act is a stepping stone toward heaven.</h3 quote>
 
 ---
 
