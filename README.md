@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'm just part of a tradition of people who aren't pleased.</h3 quote>
+<h3 quote align='center'>Dreams take you beyond what you think you can do in life.</h3 quote>
 
 ---
 
