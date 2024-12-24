@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>One of the most adventurous things left us is to go to bed.</h3 quote>
+<h3 quote align='center'>No person has the right to rain on your dreams.</h3 quote>
 
 ---
 
