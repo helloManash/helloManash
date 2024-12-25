@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>No person has the right to rain on your dreams.</h3 quote>
+<h3 quote align='center'>The democratic idealist is prone to make light of the whole question of standards and leadership because of his unbounded faith in the plain people.</h3 quote>
 
 ---
 
