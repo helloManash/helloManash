@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>We are constantly protecting the male ego, and it's a disservice to men.</h3 quote>
+<h3 quote align='center'>It is possible for a kid from east Texas, raised in south central LA and Carson, who believes in his dreams, commits himself to them with his heart, to touch them and to have them happen.</h3 quote>
 
 ---
 
