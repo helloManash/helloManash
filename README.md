@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Attitude is everything.</h3 quote>
+<h3 quote align='center'>We are constantly protecting the male ego, and it's a disservice to men.</h3 quote>
 
 ---
 
