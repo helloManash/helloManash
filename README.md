@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The biggest danger to the European Union comes not from those who advocate change, but from those who denounce new thinking as heresy.</h3 quote>
+<h3 quote align='center'>Nature gave man two ends one to sit on and one to think with.</h3 quote>
 
 ---
 
