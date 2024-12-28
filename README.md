@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Someone's sitting in the shade today because someone planted a tree a long time ago.</h3 quote>
+<h3 quote align='center'>The secret of success is sincerity.</h3 quote>
 
 ---
 
