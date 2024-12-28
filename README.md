@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nature gave man two ends one to sit on and one to think with.</h3 quote>
+<h3 quote align='center'>Someone's sitting in the shade today because someone planted a tree a long time ago.</h3 quote>
 
 ---
 
