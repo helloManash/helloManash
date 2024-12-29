@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>The secret of success is sincerity.</h3 quote>
+<h3 quote align='center'>Truth knows no color it appeals to intelligence.</h3 quote>
 
 ---
 
