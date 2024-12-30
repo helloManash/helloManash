@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>I'm sad to report that in the past few years, ever since uncertainty became our insistent 21st century companion, leadership has taken a great leap backwards to the familiar territory of command and control.</h3 quote>
+<h3 quote align='center'>Nothing makes one feel so strong as a call for help.</h3 quote>
 
 ---
 
