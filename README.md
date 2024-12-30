@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Nothing makes one feel so strong as a call for help.</h3 quote>
+<h3 quote align='center'>A man always has two reasons for doing anything: a good reason and the real reason.</h3 quote>
 
 ---
 
