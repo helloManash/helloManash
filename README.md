@@ -18,7 +18,7 @@
 
 ---
 
-<h3 quote align='center'>Yesterday we obeyed kings and bent our necks before emperors.</h3 quote>
+<h3 quote align='center'>Ability is what you're capable of doing.</h3 quote>
 
 ---
 
